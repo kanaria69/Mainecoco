@@ -1,1 +1,1 @@
-## In my career as a lumberjack I cut down exactly 52,487 trees. I know because I kept a log.
+## A man was caught stealing in a supermarket today while balanced on the shoulders of a couple of vampires. He was charged with shoplifting on two counts. 
