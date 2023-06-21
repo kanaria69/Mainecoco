@@ -1,1 +1,1 @@
-## I ate a clock yesterday. It was so time consuming.
+## Where did Captain Hook get his hook? From a second hand store.
