@@ -1,1 +1,1 @@
-## Where did Captain Hook get his hook? From a second hand store.
+## Why do birds fly south for the winter? Because it's too far to walk.
