@@ -1,1 +1,1 @@
-## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
+## New atoms frequently lose electrons when they fail to keep an ion them.
