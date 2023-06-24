@@ -1,1 +1,1 @@
-## When is a door not a door? When it's ajar.
+## Why do fish live in salt water? Because pepper makes them sneeze!
