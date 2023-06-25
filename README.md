@@ -1,1 +1,1 @@
-## What is the hardest part about sky diving? The ground.
+## Did you hear that David lost his ID in prague? Now we just have to call him Dav.
