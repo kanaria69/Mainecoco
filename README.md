@@ -1,1 +1,3 @@
-## It takes guts to be an organ donor.
+## Never Trust Someone With Graph Paper...
+## 
+## They're always plotting something.
