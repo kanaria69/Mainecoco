@@ -1,3 +1,1 @@
-## Never Trust Someone With Graph Paper...
-## 
-## They're always plotting something.
+## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
