@@ -1,3 +1,1 @@
-## Where was the Declaration of Independence signed?
-## 
-## At the bottom! 
+## What's the difference between a rooster and a crow? A rooster can crow but a crow cannot rooster.
