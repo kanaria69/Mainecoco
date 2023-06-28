@@ -1,1 +1,1 @@
-## A steak pun is a rare medium well done.
+## What do you call someone with no nose? Nobody knows.
