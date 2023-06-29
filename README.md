@@ -1,1 +1,1 @@
-## What do you call a beehive without the b's? An eehive.
+## What has ears but cannot hear? A field of corn.
