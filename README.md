@@ -1,1 +1,1 @@
-## What has ears but cannot hear? A field of corn.
+## What do I look like? A JOKE MACHINE!?
