@@ -1,1 +1,1 @@
-## A dad washes his car with his son. But after a while, the son says, "why can't you just use a sponge?"
+## Someone asked me, what's the ninth letter of the alphabet? It was a complete guess, but I was right.
