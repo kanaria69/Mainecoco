@@ -1,1 +1,1 @@
-## I had a pair of racing snails. I removed their shells to make them more aerodynamic, but they became sluggish.
+## A dad washes his car with his son. But after a while, the son says, "why can't you just use a sponge?"
