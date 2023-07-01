@@ -1,1 +1,1 @@
-## What do Alexander the Great and Winnie the Pooh have in common? Same middle name.
+## Parallel lines have so much in common. It’s a shame they’ll never meet.
