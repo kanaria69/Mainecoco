@@ -1,1 +1,1 @@
-## When do doctors get angry? When they run out of patients.
+## Why did the belt go to prison? He held up a pair of pants!
