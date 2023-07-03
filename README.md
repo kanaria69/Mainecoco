@@ -1,1 +1,1 @@
-## Why did the belt go to prison? He held up a pair of pants!
+## What did the pirate say on his 80th birthday? Aye Matey!
