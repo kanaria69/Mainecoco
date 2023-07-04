@@ -1,1 +1,1 @@
-## Have you heard about the owl sanctuary job opening? It’s all night shifts but they’re all a hoot over there.
+## Where do you take someone who has been injured in a Peek-a-boo accident? To the I.C.U.
