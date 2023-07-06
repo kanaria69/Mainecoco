@@ -1,1 +1,1 @@
-## I was going to learn how to juggle, but I didn't have the balls.
+## Me and my mates are in a band called Duvet. We're a cover band.
