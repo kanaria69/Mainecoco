@@ -1,1 +1,1 @@
-## Me and my mates are in a band called Duvet. We're a cover band.
+## Why are ghosts bad liars? Because you can see right through them!
