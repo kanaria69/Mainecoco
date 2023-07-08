@@ -1,1 +1,1 @@
-## Why do birds fly south for the winter? Because it's too far to walk.
+## Man, I really love my furniture... me and my recliner go way back.
