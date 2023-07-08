@@ -1,3 +1,1 @@
-## I used to work at a stationery store.  But, I didn't feel like I was going anywhere.
-## 
-## So, I got a job at a travel agency.  Now, I know I'll be going places.
+## Why do birds fly south for the winter? Because it's too far to walk.
