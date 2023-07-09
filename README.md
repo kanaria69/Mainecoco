@@ -1,2 +1,1 @@
-## What is the least spoken language in the world?
-## Sign Language
+## Why are fish easy to weigh? Because they have their own scales.
