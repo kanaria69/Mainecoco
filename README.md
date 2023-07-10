@@ -1,1 +1,3 @@
-## If a child refuses to sleep during nap time, are they guilty of resisting a rest?
+## Never Trust Someone With Graph Paper...
+## 
+## They're always plotting something.
