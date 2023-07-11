@@ -1,3 +1,1 @@
-## Never Trust Someone With Graph Paper...
-## 
-## They're always plotting something.
+## Why do nurses carry around red crayons? Sometimes they need to draw blood.
