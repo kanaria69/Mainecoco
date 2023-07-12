@@ -1,2 +1,1 @@
-## Where do cats write notes?
-## Scratch Paper!
+## You know that cemetery up the road? People are dying to get in there.
