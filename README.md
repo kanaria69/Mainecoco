@@ -1,1 +1,1 @@
-## What do you call a crowd of chess players bragging about their wins in a hotel lobby? Chess nuts boasting in an open foyer.
+## Why is it a bad idea to iron your four-leaf clover? Cause you shouldn't press your luck.
