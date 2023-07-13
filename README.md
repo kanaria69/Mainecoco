@@ -1,1 +1,1 @@
-## You know that cemetery up the road? People are dying to get in there.
+## Where do you take someone who has been injured in a Peek-a-boo accident? To the I.C.U.
