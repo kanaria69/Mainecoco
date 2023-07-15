@@ -1,1 +1,1 @@
-## Why did the A go to the bathroom and come out as an E? Because he had a vowel movement.
+## A boy dug three holes in the yard. When his mother saw, she exclaimed: "well, well, well"
