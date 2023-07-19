@@ -1,1 +1,1 @@
-## What do prisoners use to call each other? Cell phones.
+## I applied to be a doorman but didn't get the job due to lack of experience. That surprised me, I thought it was an entry level position.
