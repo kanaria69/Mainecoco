@@ -1,1 +1,1 @@
-## When is a door not a door? When it's ajar.
+## Why do you never see elephants hiding in trees? Because they're so good at it.
