@@ -1,1 +1,1 @@
-## The urge to sing the Lion King song is just a whim away.
+## Chances are if you' ve seen one shopping center, you've seen a mall.
