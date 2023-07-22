@@ -1,1 +1,1 @@
-## A man walked in to a bar with some asphalt on his arm. He said “Two beers please, one for me and one for the road.”
+## Every morning when I go out, I get hit by bicycle. Every morning!  It's a vicious cycle.
