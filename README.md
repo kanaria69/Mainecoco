@@ -1,1 +1,1 @@
-## Ever wondered why bees hum? It's because they don't know the words.
+## A Sandwich walks into a bar, the bartender says “Sorry, we don’t serve food here”
