@@ -1,1 +1,3 @@
-## I been watching a channel on TV that is strictly just about origami — of course it is paper-view.
+## Mahatma Gandhi, as you know, walked barefoot most of the time, which produced an impressive set of calluses on his feet. 
+## He also ate very little, which made him rather frail and with his odd diet, he suffered from bad breath. 
+## This made him a super calloused fragile mystic hexed by halitosis.
