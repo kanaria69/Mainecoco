@@ -1,1 +1,1 @@
-## Why did the kid throw the clock out the window? He wanted to see time fly!
+## My wife said I was immature. So I told her to get out of my fort.
