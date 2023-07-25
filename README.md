@@ -1,1 +1,1 @@
-## What do you call a cow on a trampoline? A milk shake!
+## When is a door not a door? When it's ajar.
