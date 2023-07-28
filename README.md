@@ -1,1 +1,1 @@
-## Why did the kid throw the clock out the window? He wanted to see time fly!
+## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
