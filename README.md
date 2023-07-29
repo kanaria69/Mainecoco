@@ -1,1 +1,1 @@
-## Slept like a log last night … woke up in the fireplace.
+## No matter how kind you are, German children are kinder.
