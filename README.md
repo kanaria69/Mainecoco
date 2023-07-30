@@ -1,2 +1,1 @@
-## What do you do when you see a space man?
-## Park your car, man.
+## Why did Dracula lie in the wrong coffin? He made a grave mistake.
