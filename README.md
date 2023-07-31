@@ -1,1 +1,2 @@
-## What did one plate say to the other plate? Dinner is on me!
+## What did the hat say to the scarf?
+## You can hang around. I'll just go on ahead.
