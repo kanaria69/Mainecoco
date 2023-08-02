@@ -1,1 +1,1 @@
-## How do you organize a space party? You planet.
+## Where do rabbits go after they get married? On a bunny-moon.
