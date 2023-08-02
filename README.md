@@ -1,3 +1,1 @@
-## Where was the Declaration of Independence signed?
-## 
-## At the bottom! 
+## How do you organize a space party? You planet.
