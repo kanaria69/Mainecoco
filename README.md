@@ -1,1 +1,1 @@
-## What is a witch's favorite subject in school? Spelling!
+## Why did the chicken get a penalty? For fowl play.
