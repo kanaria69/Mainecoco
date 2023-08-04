@@ -1,1 +1,1 @@
-## What did the fish say when it swam into a wall? Damn!
+## Why do ducks make great detectives? They always quack the case.
