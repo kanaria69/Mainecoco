@@ -1,1 +1,1 @@
-## I have the heart of a lion... and a lifetime ban from the San Diego Zoo.
+## Parallel lines have so much in common. It’s a shame they’ll never meet.
