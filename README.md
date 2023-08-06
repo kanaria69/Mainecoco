@@ -1,1 +1,1 @@
-## Slept like a log last night … woke up in the fireplace.
+## I've got a joke about vegetables for you... but it's a bit corny.
