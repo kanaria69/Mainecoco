@@ -1,1 +1,1 @@
-## What do you call an elephant that doesn’t matter? An irrelephant.
+## A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
