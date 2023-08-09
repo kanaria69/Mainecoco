@@ -1,1 +1,1 @@
-## Writing with a broken pencil is pointless.
+## Where do rabbits go after they get married? On a bunny-moon.
