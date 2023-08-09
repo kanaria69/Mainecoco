@@ -1,1 +1,1 @@
-## Why was it called the dark ages? Because of all the knights. 
+## I was at the library and asked if they have any books on "paranoia", the librarian replied, "yes, they are right behind you"
