@@ -1,1 +1,1 @@
-## I asked a frenchman if he played video games. He said "Wii"
+## What is a witch's favorite subject in school? Spelling!
