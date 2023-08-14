@@ -1,1 +1,1 @@
-## Without geometry life is pointless.
+## Where do young cows eat lunch? In the calf-ateria.
