@@ -1,1 +1,1 @@
-## Why was the strawberry sad? Its parents were in a jam.
+## Animal Fact #25: Most bobcats are not named bob.
