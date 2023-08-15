@@ -1,1 +1,2 @@
-## I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
+## Some people say that I never got over my obsession with Phil Collins.
+## But take a look at me now.
