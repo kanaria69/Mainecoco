@@ -1,1 +1,1 @@
-## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
+## I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
