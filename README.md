@@ -1,1 +1,1 @@
-## What is a tornado's favorite game to play? Twister!
+## I've got a joke about vegetables for you... but it's a bit corny.
