@@ -1,1 +1,1 @@
-## I've got a joke about vegetables for you... but it's a bit corny.
+## When I left school, I passed every one of my exams with the exception of Greek Mythology. It always was my achilles elbow
