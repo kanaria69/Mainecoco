@@ -1,1 +1,1 @@
-## What did the dog say to the two trees? Bark bark.
+## Why didn’t the skeleton cross the road? Because he had no guts.
