@@ -1,1 +1,1 @@
-## If I could name myself after any Egyptian god, I'd be Set.
+## If two vegans are having an argument, is it still considered beef?
