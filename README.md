@@ -1,1 +1,1 @@
-## How do you fix a broken pizza? With tomato paste.
+## Sgt.: Commissar! Commissar! The troops are revolting! Commissar: Well, you’re pretty repulsive yourself.
