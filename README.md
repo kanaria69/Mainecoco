@@ -1,1 +1,1 @@
-## How many South Americans does it take to change a lightbulb? A Brazilian
+## How do you make a hankie dance? Put a little boogie in it.
