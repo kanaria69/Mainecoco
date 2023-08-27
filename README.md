@@ -1,1 +1,1 @@
-## Shout out to my grandma, that's the only way she can hear.
+## What do you call a crowd of chess players bragging about their wins in a hotel lobby? Chess nuts boasting in an open foyer.
