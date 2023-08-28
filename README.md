@@ -1,1 +1,1 @@
-## My boss told me to attach two pieces of wood together... I totally nailed it!
+## A bartender broke up with her boyfriend, but he kept asking her for another shot.
