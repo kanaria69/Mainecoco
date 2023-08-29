@@ -1,1 +1,2 @@
-## What's the difference between roast beef and pea soup. Anyone can roast beef, but nobody can pee soup.
+## Why don't you find hippopotamuses hiding in trees?
+## They're really good at it.
