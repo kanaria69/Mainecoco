@@ -1,1 +1,1 @@
-## I broke my finger at work today, on the other hand I'm completely fine.
+## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
