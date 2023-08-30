@@ -1,1 +1,1 @@
-## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
+## Dermatologists are always in a hurry. They spend all day making rash decisions. 
