@@ -1,1 +1,1 @@
-## What does a clock do when it's hungry? It goes back four seconds!
+## When is a door not a door? When it's ajar.
