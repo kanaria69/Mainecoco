@@ -1,1 +1,1 @@
-## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
+## What does a clock do when it's hungry? It goes back four seconds!
