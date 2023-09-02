@@ -1,1 +1,1 @@
-## What did the shy pebble wish for? That she was a little boulder.
+## This morning I was wondering where the sun was, but then it dawned on me.
