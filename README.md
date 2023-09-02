@@ -1,1 +1,2 @@
-## It was raining cats and dogs the other day. I almost stepped in a poodle.
+## Hostess: Do you have a preference of where you sit?
+## Dad: Down.
