@@ -1,1 +1,1 @@
-## Last night me and my girlfriend watched three DVDs back to back. Luckily I was the one facing the TV.
+## Why is it always hot in the corner of a room? Because a corner is 90 degrees.
