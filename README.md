@@ -1,1 +1,1 @@
-## Why is it always hot in the corner of a room? Because a corner is 90 degrees.
+## What did one nut say as he chased another nut?  I'm a cashew!
