@@ -1,1 +1,1 @@
-## Last night me and my girlfriend watched three DVDs back to back. Luckily I was the one facing the TV.
+## What did the Buffalo say to his little boy when he dropped him off at school? Bison.
