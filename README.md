@@ -1,1 +1,1 @@
-## Why can't you use "Beef stew" as a password? Because it's not stroganoff.
+## Why should you never trust a pig with a secret? Because it's bound to squeal.
