@@ -1,1 +1,1 @@
-## What’s brown and sounds like a bell? Dung!
+## What’s E.T. short for? He’s only got little legs.
