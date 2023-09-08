@@ -1,1 +1,1 @@
-## Two silk worms had a race. They ended up in a tie.
+## When does a joke become a dad joke? When it becomes apparent.
