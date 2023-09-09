@@ -1,1 +1,1 @@
-## Why was it called the dark ages? Because of all the knights. 
+## Did you hear the one about the guy with the broken hearing aid? Neither did he.
