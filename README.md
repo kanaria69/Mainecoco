@@ -1,1 +1,1 @@
-## What do you call your friend who stands in a hole? Phil.
+## You know that cemetery up the road? People are dying to get in there.
