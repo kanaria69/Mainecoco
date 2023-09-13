@@ -1,1 +1,1 @@
-## How do locomotives know where they're going? Lots of training
+## I tried to write a chemistry joke, but could never get a reaction.
