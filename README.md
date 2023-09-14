@@ -1,1 +1,1 @@
-## What was a more important invention than the first telephone? The second one.
+## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
