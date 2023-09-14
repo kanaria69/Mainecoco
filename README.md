@@ -1,1 +1,1 @@
-## I used to work for an origami company but they folded.
+## What was a more important invention than the first telephone? The second one.
