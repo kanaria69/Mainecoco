@@ -1,1 +1,1 @@
-## I’ve got this disease where I can’t stop making airport puns. The doctor says it terminal.
+## A boy dug three holes in the yard. When his mother saw, she exclaimed: "well, well, well"
