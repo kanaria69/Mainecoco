@@ -1,1 +1,1 @@
-## A boy dug three holes in the yard. When his mother saw, she exclaimed: "well, well, well"
+## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
