@@ -1,1 +1,1 @@
-## Why is the ocean always blue? Because the shore never waves back.
+## Want to hear a joke about construction? Nah, I'm still working on it.
