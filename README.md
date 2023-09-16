@@ -1,1 +1,1 @@
-## I got fired from a florist, apparently I took too many leaves.
+## I've got a joke about vegetables for you... but it's a bit corny.
