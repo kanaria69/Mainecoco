@@ -1,1 +1,1 @@
-## Want to hear a joke about construction? Nah, I'm still working on it.
+## Why did the man put his money in the freezer? He wanted cold hard cash!
