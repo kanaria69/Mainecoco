@@ -1,1 +1,1 @@
-## Why did the man put his money in the freezer? He wanted cold hard cash!
+## I got fired from a florist, apparently I took too many leaves.
