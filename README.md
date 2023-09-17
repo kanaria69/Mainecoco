@@ -1,1 +1,1 @@
-## I've got a joke about vegetables for you... but it's a bit corny.
+## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
