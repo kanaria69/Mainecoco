@@ -1,1 +1,1 @@
-## Shout out to my grandma, that's the only way she can hear.
+## Why are fish so smart? Because they live in schools!
