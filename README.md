@@ -1,1 +1,1 @@
-## I used to work for an origami company but they folded.
+## Why are oranges the smartest fruit? Because they are made to concentrate. 
