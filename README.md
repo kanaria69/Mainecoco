@@ -1,2 +1,1 @@
-## Where do cats write notes?
-## Scratch Paper!
+## I used to work for an origami company but they folded.
