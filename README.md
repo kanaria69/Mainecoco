@@ -1,1 +1,2 @@
-## What do you call a criminal going down the stairs? Condescending
+## Why don't you find hippopotamuses hiding in trees?
+## They're really good at it.
