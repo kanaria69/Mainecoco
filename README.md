@@ -1,2 +1,1 @@
-## Why don't you find hippopotamuses hiding in trees?
-## They're really good at it.
+## Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
