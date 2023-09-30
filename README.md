@@ -1,1 +1,1 @@
-## Why is no one friends with Dracula? Because he's a pain in the neck.
+## Want to hear my pizza joke? Never mind, it's too cheesy.
