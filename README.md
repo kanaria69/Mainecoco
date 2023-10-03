@@ -1,1 +1,1 @@
-## Why do crabs never give to charity? Because they’re shellfish.
+## How do you make a hankie dance? Put a little boogie in it.
