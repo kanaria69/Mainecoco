@@ -1,1 +1,1 @@
-## How do you make a hankie dance? Put a little boogie in it.
+## Did you hear the one about the giant pickle?  He was kind of a big dill.
