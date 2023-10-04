@@ -1,1 +1,1 @@
-## I had a rough day, and then somebody went and ripped the front and back pages from my dictionary. It just goes from bad to worse.
+## What do you call a fashionable lawn statue with an excellent sense of rhythmn? A metro-gnome
