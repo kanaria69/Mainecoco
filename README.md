@@ -1,1 +1,1 @@
-## How can you tell a vampire has a cold? They start coffin.
+## My wife said I was immature. So I told her to get out of my fort.
