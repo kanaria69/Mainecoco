@@ -1,1 +1,3 @@
-## What did the beaver say to the tree? It's been nice gnawing you.
+## What was the pumpkin’s favorite sport?
+## 
+## Squash.
