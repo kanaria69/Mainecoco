@@ -1,1 +1,1 @@
-## What do you call a beehive without the b's? An eehive.
+## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
