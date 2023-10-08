@@ -1,1 +1,1 @@
-## I broke my finger at work today, on the other hand I'm completely fine.
+## Ever wondered why bees hum? It's because they don't know the words.
