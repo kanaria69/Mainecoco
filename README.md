@@ -1,1 +1,1 @@
-## Did you hear about the runner who was criticized? He just took it in stride
+## My wife is on a tropical fruit diet, the house is full of stuff. It is enough to make a mango crazy.
