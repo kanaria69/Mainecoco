@@ -1,1 +1,1 @@
-## A Skeleton walked into a bar he said I need a beer and a mop
+## Ever wondered why bees hum? It's because they don't know the words.
