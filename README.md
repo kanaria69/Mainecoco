@@ -1,1 +1,1 @@
-## What kind of pants do ghosts wear? Boo jeans.
+## What's brown and sticky? A stick.
