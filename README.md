@@ -1,1 +1,1 @@
-## What's brown and sticky? A stick.
+## Why is there always a gate around cemeteries? Because people are always dying to get in.
