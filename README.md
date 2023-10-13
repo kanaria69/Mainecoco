@@ -1,1 +1,1 @@
-## What is a vampire's favorite fruit? A blood orange.
+## What's the difference between roast beef and pea soup. Anyone can roast beef, but nobody can pee soup.
