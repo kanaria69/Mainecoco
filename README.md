@@ -1,1 +1,1 @@
-## I went to the zoo the other day, there was only one dog in it. It was a shitzu.
+## Doctor you've got to help me, I'm addicted to Twitter. Doctor: I don't follow you.
