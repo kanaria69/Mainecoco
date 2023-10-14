@@ -1,1 +1,1 @@
-## You can't run through a camp site. You can only ran, because it's past tents.
+## I am terrified of elevators. I’m going to start taking steps to avoid them.
