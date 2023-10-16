@@ -1,1 +1,1 @@
-## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
+## A beekeeper was indicted after he confessed to years of stealing at work. They charged him with emBEEzlement
