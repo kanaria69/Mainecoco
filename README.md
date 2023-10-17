@@ -1,1 +1,1 @@
-## There's not really any training for garbagemen. They just pick things up as they go.
+## What did the calculator say to the student? You can count on me.
