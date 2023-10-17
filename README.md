@@ -1,1 +1,1 @@
-## Why don't eggs tell jokes? They'd crack each other up
+## I used to be a banker, but I lost interest.
