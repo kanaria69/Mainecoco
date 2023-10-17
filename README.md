@@ -1,1 +1,1 @@
-## What did the calculator say to the student? You can count on me.
+## Why don't eggs tell jokes? They'd crack each other up
