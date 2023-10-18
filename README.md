@@ -1,1 +1,1 @@
-## Shout out to my grandma, that's the only way she can hear.
+## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
