@@ -1,1 +1,1 @@
-## My new thesaurus is terrible. In fact, it's so bad, I'd say it's terrible.
+## Why do trees seem suspicious on sunny days? Dunno, they're just a bit shady.
