@@ -1,1 +1,1 @@
-## How do you make Lady Gaga cry? Poker face. 
+## What is a witch's favorite subject in school? Spelling!
