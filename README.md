@@ -1,1 +1,1 @@
-## I had a rough day, and then somebody went and ripped the front and back pages from my dictionary. It just goes from bad to worse.
+## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
