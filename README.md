@@ -1,1 +1,1 @@
-## How does a dyslexic poet write? Inverse.
+## Frankenstein enters a bodybuilding competition and finds he has seriously misunderstood the objective.
