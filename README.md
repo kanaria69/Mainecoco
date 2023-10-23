@@ -1,1 +1,1 @@
-## I couldn't get a reservation at the library. They were completely booked.
+## I have kleptomania, but when it gets bad, I take something for it.
