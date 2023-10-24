@@ -1,1 +1,1 @@
-## What do you call a cow with two legs? Lean beef.
+## Why didn’t the skeleton cross the road? Because he had no guts.
