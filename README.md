@@ -1,3 +1,1 @@
-## Doctor: Do you want to hear the good news or the bad news?
-## Patient: Good news please.
-## Doctor: we're naming a disease after you.
+## If you think swimming with dolphins is expensive, you should try swimming with sharks--it cost me an arm and a leg!
