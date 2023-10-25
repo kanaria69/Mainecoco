@@ -1,1 +1,1 @@
-## Why didn’t the skeleton cross the road? Because he had no guts.
+## What do you get when you cross a chicken with a skunk? A fowl smell!
