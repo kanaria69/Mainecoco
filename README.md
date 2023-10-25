@@ -1,1 +1,1 @@
-## What do you get when you cross a chicken with a skunk? A fowl smell!
+## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
