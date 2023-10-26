@@ -1,1 +1,1 @@
-## What kind of pants do ghosts wear? Boo jeans.
+## What do you call a careful wolf? Aware wolf.
