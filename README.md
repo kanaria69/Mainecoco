@@ -1,1 +1,1 @@
-## Have you heard about the owl sanctuary job opening? It’s all night shifts but they’re all a hoot over there.
+## What's the worst thing about ancient history class? The teachers tend to Babylon.
