@@ -1,2 +1,1 @@
-## Where do cats write notes?
-## Scratch Paper!
+## This morning I was wondering where the sun was, but then it dawned on me.
