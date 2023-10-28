@@ -1,1 +1,1 @@
-## This morning I was wondering where the sun was, but then it dawned on me.
+## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
