@@ -1,1 +1,3 @@
-## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
+## What's the worst part about being a cross-eyed teacher?
+## 
+## They can't control their pupils.
