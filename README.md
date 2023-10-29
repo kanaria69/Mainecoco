@@ -1,1 +1,1 @@
-## Did you hear about the kidnapping at school? It's ok, he woke up.
+## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
