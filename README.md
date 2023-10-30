@@ -1,1 +1,1 @@
-## Why do cows wear bells? Because their horns don't work.
+## Yesterday a clown held a door open for me. I thought it was a nice jester.
