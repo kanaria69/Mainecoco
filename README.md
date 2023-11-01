@@ -1,1 +1,1 @@
-## Why was the big cat disqualified from the race? Because it was a cheetah.
+## Why is no one friends with Dracula? Because he's a pain in the neck.
