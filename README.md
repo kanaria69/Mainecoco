@@ -1,1 +1,1 @@
-## How come the stadium got hot after the game? Because all of the fans left.
+## Why was the big cat disqualified from the race? Because it was a cheetah.
