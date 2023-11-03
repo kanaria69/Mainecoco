@@ -1,1 +1,1 @@
-## How do you get a baby alien to sleep?  You rocket.
+## Where do sheep go to get their hair cut? The baa-baa shop.
