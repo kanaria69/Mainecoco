@@ -1,1 +1,1 @@
-## Somebody stole my Microsoft Office and they're going to pay - you have my Word.
+## No matter how kind you are, German children are kinder.
