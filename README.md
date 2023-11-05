@@ -1,1 +1,1 @@
-## Why did the cookie cry? It was feeling crumby.
+## Without geometry life is pointless.
