@@ -1,1 +1,1 @@
-## Why was Pavlov's beard so soft?  Because he conditioned it.
+## What do you call a monkey in a mine field? A babooooom!
