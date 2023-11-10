@@ -1,1 +1,1 @@
-## Me and my mates are in a band called Duvet. We're a cover band.
+## I thought about going on an all-almond diet. But that's just nuts.
