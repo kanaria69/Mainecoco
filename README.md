@@ -1,1 +1,1 @@
-## R.I.P. boiled water. You will be mist.
+## Don't tell secrets in corn fields. Too many ears around.
