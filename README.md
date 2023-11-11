@@ -1,1 +1,2 @@
-## Don't tell secrets in corn fields. Too many ears around.
+## "Dad, I'm cold."
+## "Go stand in the corner, I hear it's 90 degrees."
