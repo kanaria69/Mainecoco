@@ -1,1 +1,1 @@
-## Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
+## I was at the library and asked if they have any books on "paranoia", the librarian replied, "yes, they are right behind you"
