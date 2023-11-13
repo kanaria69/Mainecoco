@@ -1,1 +1,1 @@
-## So a duck walks into a pharmacy and says “Give me some chap-stick… and put it on my bill”
+## Last night me and my girlfriend watched three DVDs back to back. Luckily I was the one facing the TV.
