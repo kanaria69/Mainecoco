@@ -1,1 +1,1 @@
-## Last night me and my girlfriend watched three DVDs back to back. Luckily I was the one facing the TV.
+## What's the difference between a guitar and a fish? You can tune a guitar but you can't "tuna" fish!
