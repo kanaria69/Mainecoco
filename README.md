@@ -1,1 +1,1 @@
-## How does a dyslexic poet write? Inverse.
+## Why don't sharks eat clowns?  Because they taste funny.
