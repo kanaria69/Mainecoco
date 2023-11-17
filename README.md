@@ -1,2 +1,1 @@
-## Some people say that I never got over my obsession with Phil Collins.
-## But take a look at me now.
+## What do Alexander the Great and Winnie the Pooh have in common? Same middle name.
