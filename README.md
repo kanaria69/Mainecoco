@@ -1,1 +1,1 @@
-## What do Alexander the Great and Winnie the Pooh have in common? Same middle name.
+## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
