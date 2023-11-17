@@ -1,1 +1,1 @@
-## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
+## What happens to a frog's car when it breaks down? It gets toad.
