@@ -1,1 +1,1 @@
-## Velcro… What a rip-off.
+## I heard there was a new store called Moderation. They have everything there
