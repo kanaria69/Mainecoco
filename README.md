@@ -1,1 +1,1 @@
-## In my career as a lumberjack I cut down exactly 52,487 trees. I know because I kept a log.
+## How did Darth Vader know what Luke was getting for Christmas? He felt his presents.
