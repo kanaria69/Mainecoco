@@ -1,1 +1,1 @@
-## What did the ocean say to the beach? Thanks for all the sediment.
+## I adopted my dog from a blacksmith. As soon as we got home he made a bolt for the door.
