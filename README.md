@@ -1,1 +1,1 @@
-## Where does Napoleon keep his armies? In his sleevies.
+## What do you get if you cross a turkey with a ghost? A poultry-geist!
