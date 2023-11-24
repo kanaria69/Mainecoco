@@ -1,1 +1,1 @@
-## Why do mathematicians hate the U.S.? Because it's indivisible.
+## For Valentine's day, I decided to get my wife some beads for an abacus.  It's the little things that count.
