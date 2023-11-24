@@ -1,1 +1,1 @@
-## What do you get if you cross a turkey with a ghost? A poultry-geist!
+## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
