@@ -1,1 +1,1 @@
-## Did you know that ghosts call their true love their ghoul-friend?
+## What has ears but cannot hear? A field of corn.
