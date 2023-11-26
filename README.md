@@ -1,2 +1,1 @@
-## What did the green grape say to the purple grape?
-## BREATH!!
+## I used to be addicted to the hokey pokey, but I turned myself around.
