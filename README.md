@@ -1,1 +1,1 @@
-## Why do birds fly south for the winter? Because it's too far to walk.
+## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
