@@ -1,1 +1,1 @@
-## How come a man driving a train got struck by lightning? He was a good conductor.
+## Why is it so windy inside an arena? All those fans.
