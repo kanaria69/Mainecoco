@@ -1,1 +1,1 @@
-## I hate perforated lines, they're tearable.
+## Why do crabs never give to charity? Because they’re shellfish.
