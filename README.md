@@ -1,1 +1,1 @@
-## Why was the strawberry sad? Its parents were in a jam.
+## Why can't your nose be 12 inches long? Because then it'd be a foot!
