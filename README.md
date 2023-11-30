@@ -1,1 +1,1 @@
-## What do you call someone with no nose? Nobody knows.
+## Don't buy flowers at a monastery. Because only you can prevent florist friars.
