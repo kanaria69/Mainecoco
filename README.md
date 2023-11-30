@@ -1,1 +1,1 @@
-## Don't buy flowers at a monastery. Because only you can prevent florist friars.
+## Why do bananas have to put on sunscreen before they go to the beach? Because they might peel!
