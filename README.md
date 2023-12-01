@@ -1,1 +1,1 @@
-## To the guy who invented zero... thanks for nothing.
+## To the person who stole my anti-depressant pills: I hope you're happy now.
