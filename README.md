@@ -1,1 +1,1 @@
-## Why did the teddy bear say “no” to dessert? Because she was stuffed.
+## Why did the m&m go to school? Because it wanted to be a Smartie!
