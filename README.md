@@ -1,1 +1,1 @@
-## How do you organize a space party? You planet.
+## What don't watermelons get married? Because they cantaloupe.
