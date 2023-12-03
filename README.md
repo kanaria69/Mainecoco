@@ -1,1 +1,1 @@
-## What don't watermelons get married? Because they cantaloupe.
+## "Dad, I'm hungry." Hello, Hungry. I'm Dad.
