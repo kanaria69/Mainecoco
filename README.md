@@ -1,1 +1,1 @@
-## When is a door not a door? When it's ajar.
+## Why was the strawberry sad? Its parents were in a jam.
