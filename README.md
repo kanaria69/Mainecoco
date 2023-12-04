@@ -1,1 +1,1 @@
-## Why was the strawberry sad? Its parents were in a jam.
+## Why did the kid throw the clock out the window? He wanted to see time fly!
