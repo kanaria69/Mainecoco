@@ -1,2 +1,1 @@
-## Q: What did the spaghetti say to the other spaghetti?
-## A: Pasta la vista, baby!
+## "Why do seagulls fly over the ocean?" "Because if they flew over the bay, we'd call them bagels."
