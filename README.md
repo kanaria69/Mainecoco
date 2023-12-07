@@ -1,1 +1,1 @@
-## Leather is great for sneaking around because it's made of hide.
+## Did you know crocodiles could grow up to 15 feet? But most just have 4.
