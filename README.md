@@ -1,1 +1,1 @@
-## What has a bed that you can’t sleep in? A river.
+## Leather is great for sneaking around because it's made of hide.
