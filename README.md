@@ -1,1 +1,1 @@
-## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
+## I was thinking about moving to Moscow but there is no point Russian into things.
