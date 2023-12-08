@@ -1,1 +1,1 @@
-## I was thinking about moving to Moscow but there is no point Russian into things.
+## What do you get if you cross a turkey with a ghost? A poultry-geist!
