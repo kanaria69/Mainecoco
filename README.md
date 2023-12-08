@@ -1,1 +1,1 @@
-## How are false teeth like stars? They come out at night!
+## What's the best thing about elevator jokes? They work on so many levels.
