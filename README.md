@@ -1,1 +1,1 @@
-## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
+## Did you hear about the scientist who was lab partners with a pot of boiling water? He had a very esteemed colleague.
