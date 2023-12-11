@@ -1,1 +1,1 @@
-## What do you call a bee that lives in America? A USB.
+## Where do you learn to make banana splits? At sundae school.
