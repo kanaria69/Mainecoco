@@ -1,1 +1,2 @@
-## Sgt.: Commissar! Commissar! The troops are revolting! Commissar: Well, you’re pretty repulsive yourself.
+## What is red and smells like blue paint?
+## Red paint!
