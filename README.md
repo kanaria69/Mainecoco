@@ -1,2 +1,1 @@
-## What is red and smells like blue paint?
-## Red paint!
+## I went to the zoo yesterday and saw a baguette in a cage. It was bread in captivity.
