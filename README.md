@@ -1,1 +1,1 @@
-## A ghost walks into a bar and asks for a glass of vodka but the bar tender says, “sorry we don’t serve spirits”
+## Thanks for explaining the word "many" to me. It means a lot.
