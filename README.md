@@ -1,1 +1,1 @@
-## Thanks for explaining the word "many" to me. It means a lot.
+## Dermatologists are always in a hurry. They spend all day making rash decisions. 
