@@ -1,1 +1,1 @@
-## What did Michael Jackson name his denim store?    Billy Jeans!
+## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
