@@ -1,1 +1,1 @@
-## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
+## What do computers and air conditioners have in common? They both become useless when you open windows.
