@@ -1,1 +1,3 @@
-## Can a kangaroo jump higher than the Empire State Building? Of course. The Empire State Building can't jump.
+## What is the difference between ignorance and apathy?
+## 
+## I don't know and I don't care.
