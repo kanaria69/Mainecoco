@@ -1,1 +1,1 @@
-## How many kids with ADD does it take to change a lightbulb? Let's go ride bikes!
+## Frankenstein enters a bodybuilding competition and finds he has seriously misunderstood the objective.
