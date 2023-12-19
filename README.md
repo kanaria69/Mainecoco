@@ -1,1 +1,1 @@
-## Why did the girl smear peanut butter on the road? To go with the traffic jam.
+## Is there a hole in your shoe? No… Then how’d you get your foot in it?
