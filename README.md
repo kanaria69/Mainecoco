@@ -1,1 +1,1 @@
-## I gave all my dead batteries away today, free of charge.
+## Why do mathematicians hate the U.S.? Because it's indivisible.
