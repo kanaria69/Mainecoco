@@ -1,1 +1,1 @@
-## A bartender broke up with her boyfriend, but he kept asking her for another shot.
+## Who is the coolest Doctor in the hospital? The hip Doctor!
