@@ -1,1 +1,1 @@
-## Velcro… What a rip-off.
+## What is the hardest part about sky diving? The ground.
