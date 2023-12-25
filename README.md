@@ -1,1 +1,1 @@
-## Is the pool safe for diving? It deep ends.
+## Have you heard about corduroy pillows?  They're making headlines!
