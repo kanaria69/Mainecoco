@@ -1,1 +1,1 @@
-## How does a dyslexic poet write? Inverse.
+## Why don't eggs tell jokes? They'd crack each other up
