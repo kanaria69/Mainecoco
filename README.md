@@ -1,1 +1,1 @@
-## Why don't eggs tell jokes? They'd crack each other up
+## Is the pool safe for diving? It deep ends.
