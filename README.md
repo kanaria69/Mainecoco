@@ -1,1 +1,1 @@
-## Have you heard about corduroy pillows?  They're making headlines!
+## Ben & Jerry's really need to improve their operation. The only way to get there is down a rocky road.
