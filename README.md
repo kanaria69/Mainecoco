@@ -1,1 +1,1 @@
-## How much does a hipster weigh? An instagram.
+## My boss told me to have a good day... so I went home.
