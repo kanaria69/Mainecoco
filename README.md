@@ -1,1 +1,1 @@
-## Atheism is a non-prophet organisation.
+## Have you ever seen fruit preserves being made? It's jarring.
