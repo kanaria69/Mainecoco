@@ -1,1 +1,1 @@
-## How do you steal a coat? You jacket.
+## I don’t play soccer because I enjoy the sport. I’m just doing it for kicks.
