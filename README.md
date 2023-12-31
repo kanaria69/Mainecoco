@@ -1,1 +1,1 @@
-## Why do fish live in salt water? Because pepper makes them sneeze!
+## What do you get when you cross a chicken with a skunk? A fowl smell!
