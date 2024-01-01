@@ -1,1 +1,1 @@
-## What do you call a fish wearing a bowtie? Sofishticated.
+## Where does Napoleon keep his armies? In his sleevies.
