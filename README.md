@@ -1,1 +1,1 @@
-## I got fired from a florist, apparently I took too many leaves.
+## I was wondering why the frisbee was getting bigger, then it hit me.
