@@ -1,1 +1,1 @@
-## Have you heard of the band 1023MB? They haven't got a gig yet.
+## Why do wizards clean their teeth three times a day? To prevent bat breath!
