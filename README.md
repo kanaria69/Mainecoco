@@ -1,1 +1,1 @@
-## Why do wizards clean their teeth three times a day? To prevent bat breath!
+## How can you tell a vampire has a cold? They start coffin.
