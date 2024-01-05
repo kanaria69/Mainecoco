@@ -1,1 +1,1 @@
-## What do you call a boomerang that won't come back? A stick.
+## Where does astronauts hangout after work? At the spacebar.
