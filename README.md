@@ -1,1 +1,1 @@
-## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
+## Do you know where you can get chicken broth in bulk? The stock market.
