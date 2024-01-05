@@ -1,1 +1,1 @@
-## Where does astronauts hangout after work? At the spacebar.
+## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
