@@ -1,1 +1,1 @@
-## I accidentally took my cats meds last night. Don’t ask meow.
+## Why does Superman get invited to dinners? Because he is a Supperhero.
