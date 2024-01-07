@@ -1,1 +1,1 @@
-## What time did the man go to the dentist? Tooth hurt-y.
+## This morning I was wondering where the sun was, but then it dawned on me.
