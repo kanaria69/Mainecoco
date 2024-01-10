@@ -1,1 +1,1 @@
-## I wouldn't buy anything with velcro. It's a total rip-off.
+## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
