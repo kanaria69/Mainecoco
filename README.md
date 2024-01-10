@@ -1,1 +1,1 @@
-## I tried to write a chemistry joke, but could never get a reaction.
+## I wouldn't buy anything with velcro. It's a total rip-off.
