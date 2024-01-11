@@ -1,1 +1,1 @@
-## What creature is smarter than a talking parrot? A spelling bee.
+## What did the father tomato say to the baby tomato whilst on a family walk? Ketchup.
