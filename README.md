@@ -1,1 +1,1 @@
-## What did the father tomato say to the baby tomato whilst on a family walk? Ketchup.
+## What did one wall say to the other wall? I'll meet you at the corner!
