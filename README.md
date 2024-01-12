@@ -1,1 +1,1 @@
-## A cannibal is someone who is fed up with people.
+## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
