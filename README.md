@@ -1,1 +1,1 @@
-## Did you hear about the Mexican train killer? He had loco motives
+## Why do mathematicians hate the U.S.? Because it's indivisible.
