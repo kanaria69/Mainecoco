@@ -1,1 +1,1 @@
-## How do you find Will Smith in the snow?  Look for fresh prints.
+## Why did the tomato blush? Because it saw the salad dressing.
