@@ -1,1 +1,1 @@
-## What do you call corn that joins the army? Kernel.
+## How come a man driving a train got struck by lightning? He was a good conductor.
