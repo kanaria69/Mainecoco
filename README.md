@@ -1,1 +1,1 @@
-## How come a man driving a train got struck by lightning? He was a good conductor.
+## What's the best thing about elevator jokes? They work on so many levels.
