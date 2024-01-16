@@ -1,1 +1,1 @@
-## How does Darth Vader like his toast? On the dark side.
+## Why did the scarecrow win an award? Because he was outstanding in his field.
