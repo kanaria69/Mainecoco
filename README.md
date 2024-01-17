@@ -1,1 +1,1 @@
-## Recent survey revealed 6 out of 7 dwarf's aren't happy.
+## Why is it a bad idea to iron your four-leaf clover? Cause you shouldn't press your luck.
