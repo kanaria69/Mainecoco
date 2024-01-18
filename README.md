@@ -1,1 +1,1 @@
-## I’m only familiar with 25 letters in the English language. I don’t know why.
+## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
