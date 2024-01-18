@@ -1,1 +1,1 @@
-## There's not really any training for garbagemen. They just pick things up as they go.
+## Why do fish live in salt water? Because pepper makes them sneeze!
