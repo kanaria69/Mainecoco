@@ -1,1 +1,1 @@
-## Why are mummys scared of vacation? They're afraid to unwind.
+## What lies at the bottom of the ocean and twitches? A nervous wreck.
