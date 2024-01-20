@@ -1,1 +1,1 @@
-## I’m on a whiskey diet. I’ve lost three days already.
+## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
