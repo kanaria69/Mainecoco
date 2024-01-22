@@ -1,1 +1,1 @@
-## Why do mathematicians hate the U.S.? Because it's indivisible.
+## Why did the kid cross the playground? To get to the other slide.
