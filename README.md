@@ -1,1 +1,1 @@
-## This morning I was wondering where the sun was, but then it dawned on me.
+## Why was the strawberry sad? Its parents were in a jam.
