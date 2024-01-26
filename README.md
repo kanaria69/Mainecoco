@@ -1,1 +1,1 @@
-## When do doctors get angry? When they run out of patients.
+## Geology rocks, but Geography is where it's at!
