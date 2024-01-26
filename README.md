@@ -1,1 +1,1 @@
-## What’s brown and sounds like a bell? Dung!
+## Why are mummys scared of vacation? They're afraid to unwind.
