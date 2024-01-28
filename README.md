@@ -1,1 +1,1 @@
-## People saying 'boo! to their friends has risen by 85% in the last year.... That's a frightening statistic.
+## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
