@@ -1,1 +1,1 @@
-## I’m on a whiskey diet. I’ve lost three days already.
+## Why don't skeletons ride roller coasters? They don't have the stomach for it.
