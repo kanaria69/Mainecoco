@@ -1,1 +1,1 @@
-## How are false teeth like stars? They come out at night!
+## What do I look like? A JOKE MACHINE!?
