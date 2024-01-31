@@ -1,1 +1,3 @@
-## I used to be addicted to soap, but I'm clean now.
+## Never Trust Someone With Graph Paper...
+## 
+## They're always plotting something.
