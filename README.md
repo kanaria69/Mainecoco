@@ -1,1 +1,1 @@
-## Why don't eggs tell jokes? They'd crack each other up
+## I went to the doctor today and he told me I had type A blood but it was a type O.
