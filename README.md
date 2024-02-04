@@ -1,1 +1,1 @@
-## This furniture store keeps emailing me, all I wanted was one night stand!
+## Did you hear about the new restaurant on the moon? The food is great, but there’s just no atmosphere.
