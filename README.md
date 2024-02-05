@@ -1,1 +1,1 @@
-## Why do bees hum? Because they don't know the words.
+## You can't trust a ladder. It will always let you down
