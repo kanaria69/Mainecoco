@@ -1,1 +1,1 @@
-## Dad, can you put my shoes on? I don't think they'll fit me.
+## Did you hear about the two thieves who stole a calendar? They each got six months.
