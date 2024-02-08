@@ -1,1 +1,1 @@
-## There’s a new type of broom out, it’s sweeping the nation.
+## How do you find Will Smith in the snow?  Look for fresh prints.
