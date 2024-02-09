@@ -1,1 +1,1 @@
-## I'd like to start a diet, but I've got too much on my plate right now.
+## Why did the octopus beat the shark in a fight? Because it was well armed.
