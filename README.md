@@ -1,1 +1,1 @@
-## My dentist is the best, he even has a little plaque!
+## Why can't eggs have love? They will break up too soon.
