@@ -1,1 +1,1 @@
-## Why is Peter Pan always flying? Because he Neverlands.
+## Why did the opera singer go sailing? They wanted to hit the high Cs.
