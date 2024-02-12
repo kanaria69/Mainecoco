@@ -1,1 +1,1 @@
-## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
+## Is there a hole in your shoe? No… Then how’d you get your foot in it?
