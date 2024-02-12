@@ -1,1 +1,1 @@
-## I've got a joke about vegetables for you... but it's a bit corny.
+## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
