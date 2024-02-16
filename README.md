@@ -1,1 +1,1 @@
-## I bought shoes from a drug dealer once. I don't know what he laced them with, but I was tripping all day.
+## I went on a date last night with a girl from the zoo. It was great. She’s a keeper.
