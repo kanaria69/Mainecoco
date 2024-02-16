@@ -1,2 +1,1 @@
-## What's the difference between a seal and a sea lion?
-## An ion! 
+## I bought shoes from a drug dealer once. I don't know what he laced them with, but I was tripping all day.
