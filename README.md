@@ -1,1 +1,2 @@
-## Shout out to my grandma, that's the only way she can hear.
+## What's the difference between a seal and a sea lion?
+## An ion! 
