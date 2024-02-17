@@ -1,1 +1,3 @@
-## I went on a date last night with a girl from the zoo. It was great. She’s a keeper.
+## What's the worst part about being a cross-eyed teacher?
+## 
+## They can't control their pupils.
