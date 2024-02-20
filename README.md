@@ -1,1 +1,1 @@
-## I accidentally took my cats meds last night. Don’t ask meow.
+## I tried to write a chemistry joke, but could never get a reaction.
