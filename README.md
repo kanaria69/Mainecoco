@@ -1,1 +1,1 @@
-## I tried to write a chemistry joke, but could never get a reaction.
+## Yesterday I confused the words "jacuzzi" and "yakuza". Now I'm in hot water with the Japanese mafia.
