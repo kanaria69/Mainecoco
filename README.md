@@ -1,1 +1,1 @@
-## Yesterday I confused the words "jacuzzi" and "yakuza". Now I'm in hot water with the Japanese mafia.
+## Have you heard the story about the magic tractor? It drove down the road and turned into a field.
