@@ -1,1 +1,1 @@
-## Have you heard the story about the magic tractor? It drove down the road and turned into a field.
+## Where do you take someone who has been injured in a Peek-a-boo accident? To the I.C.U.
