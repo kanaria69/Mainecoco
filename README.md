@@ -1,1 +1,1 @@
-## Where do you take someone who has been injured in a Peek-a-boo accident? To the I.C.U.
+## When people are sad, I sometimes let them colour in my tattoos. Sometimes all they need is a shoulder to crayon.
