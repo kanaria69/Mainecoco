@@ -1,1 +1,1 @@
-## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
+## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
