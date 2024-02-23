@@ -1,1 +1,1 @@
-## "Dad, I'm hungry." Hello, Hungry. I'm Dad.
+## I accidentally drank a bottle of invisible ink. Now I’m in hospital, waiting to be seen.
