@@ -1,1 +1,1 @@
-## A beekeeper was indicted after he confessed to years of stealing at work. They charged him with emBEEzlement
+## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
