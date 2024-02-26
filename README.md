@@ -1,1 +1,1 @@
-## Why do you never see elephants hiding in trees? Because they're so good at it.
+## I couldn't get a reservation at the library. They were completely booked.
