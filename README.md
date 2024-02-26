@@ -1,1 +1,1 @@
-## What is worse then finding a worm in your Apple? Finding half a worm in your Apple.
+## Why do trees seem suspicious on sunny days? Dunno, they're just a bit shady.
