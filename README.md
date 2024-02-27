@@ -1,1 +1,1 @@
-## R.I.P. boiled water. You will be mist.
+## A horse walks into a bar. The bar tender says "Hey." The horse says "Sure."
