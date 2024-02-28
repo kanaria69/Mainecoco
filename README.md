@@ -1,1 +1,1 @@
-## Why was the big cat disqualified from the race? Because it was a cheetah.
+## My friend told me that pepper is the best seasoning for a roast, but I took it with a grain of salt.
