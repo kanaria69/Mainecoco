@@ -1,1 +1,2 @@
-## People are making apocalypse jokes like there’s no tomorrow.
+## Why did the cookie cry?
+## Because his mother was a wafer so long
