@@ -1,2 +1,1 @@
-## Why did the cookie cry?
-## Because his mother was a wafer so long
+## Why was the robot angry? Because someone kept pressing his buttons!
