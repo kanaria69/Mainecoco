@@ -1,2 +1,1 @@
-## What did the hat say to the scarf?
-## You can hang around. I'll just go on ahead.
+## New atoms frequently lose electrons when they fail to keep an ion them.
