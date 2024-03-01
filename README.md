@@ -1,1 +1,1 @@
-## New atoms frequently lose electrons when they fail to keep an ion them.
+## I just read a book about Stockholm syndrome. It was pretty bad at first, but by the end I liked it.
