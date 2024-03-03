@@ -1,1 +1,1 @@
-## When you have a bladder infection, urine trouble.
+## I saw my husband trip and fall while carrying a laundry basket full of ironed clothes. I watched it all unfold.
