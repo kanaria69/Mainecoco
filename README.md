@@ -1,1 +1,1 @@
-## Where do young cows eat lunch? In the calf-ateria.
+## Why are pirates called pirates? Because they arrr!
