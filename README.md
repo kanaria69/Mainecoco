@@ -1,1 +1,1 @@
-## Why was the strawberry sad? Its parents were in a jam.
+## Where do young cows eat lunch? In the calf-ateria.
