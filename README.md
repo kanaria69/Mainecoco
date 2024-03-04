@@ -1,1 +1,1 @@
-## What did Yoda say when he saw himself in 4K? "HDMI"
+## Did you hear that the police have a warrant out on a midget psychic ripping people off? It reads “Small medium at large.”
