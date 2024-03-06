@@ -1,1 +1,1 @@
-## Nurse: Doctor, there's a patient that says he's invisible. Doctor: Well, tell him I can't see him right now!
+## A bartender broke up with her boyfriend, but he kept asking her for another shot.
