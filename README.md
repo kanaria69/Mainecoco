@@ -1,1 +1,1 @@
-## A bartender broke up with her boyfriend, but he kept asking her for another shot.
+## Did you know that ghosts call their true love their ghoul-friend?
