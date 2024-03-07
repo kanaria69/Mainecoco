@@ -1,1 +1,1 @@
-## How much does a hipster weigh? An instagram.
+## I considered building the patio by myself. But I didn't have the stones.
