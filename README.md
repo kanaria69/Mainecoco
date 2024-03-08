@@ -1,1 +1,1 @@
-## Why don't skeletons ride roller coasters? They don't have the stomach for it.
+## A butcher accidentally backed into his meat grinder and got a little behind in his work that day.
