@@ -1,1 +1,1 @@
-## I asked a frenchman if he played video games. He said "Wii"
+## How do the trees get on the internet? They log on.
