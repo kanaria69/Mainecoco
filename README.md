@@ -1,1 +1,1 @@
-## How do the trees get on the internet? They log on.
+## Why are mummys scared of vacation? They're afraid to unwind.
