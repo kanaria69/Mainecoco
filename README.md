@@ -1,1 +1,1 @@
-## “My Dog has no nose.” “How does he smell?” “Awful”
+## I asked a frenchman if he played video games. He said "Wii"
