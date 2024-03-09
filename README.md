@@ -1,1 +1,1 @@
-## Why is no one friends with Dracula? Because he's a pain in the neck.
+## “My Dog has no nose.” “How does he smell?” “Awful”
