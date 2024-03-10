@@ -1,1 +1,1 @@
-## Why should you never trust a pig with a secret? Because it's bound to squeal.
+## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
