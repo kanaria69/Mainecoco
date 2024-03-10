@@ -1,1 +1,1 @@
-## My dentist is the best, he even has a little plaque!
+## Why did the melons plan a big wedding? Because they cantaloupe!
