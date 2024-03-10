@@ -1,1 +1,1 @@
-## Why did the melons plan a big wedding? Because they cantaloupe!
+## Why should you never trust a pig with a secret? Because it's bound to squeal.
