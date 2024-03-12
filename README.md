@@ -1,1 +1,1 @@
-## You know that cemetery up the road? People are dying to get in there.
+## Mountains aren't just funny, they are hill areas
