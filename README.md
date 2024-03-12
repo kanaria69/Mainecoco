@@ -1,1 +1,1 @@
-## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
+## So a duck walks into a pharmacy and says “Give me some chap-stick… and put it on my bill”
