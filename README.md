@@ -1,1 +1,1 @@
-## Mountains aren't just funny, they are hill areas
+## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
