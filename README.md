@@ -1,1 +1,1 @@
-## Why did the melons plan a big wedding? Because they cantaloupe!
+## A bartender broke up with her boyfriend, but he kept asking her for another shot.
