@@ -1,1 +1,1 @@
-## Why do bees have sticky hair? Because they use honey combs!
+## I gave all my dead batteries away today, free of charge.
