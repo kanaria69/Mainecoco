@@ -1,1 +1,1 @@
-## Did you hear about the cheese who saved the world? It was Legend-dairy!
+## How come the stadium got hot after the game? Because all of the fans left.
