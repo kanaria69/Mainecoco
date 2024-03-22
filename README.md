@@ -1,1 +1,1 @@
-## Two guys walked into a bar, the third one ducked.
+## Where do young cows eat lunch? In the calf-ateria.
