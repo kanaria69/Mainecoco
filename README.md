@@ -1,1 +1,1 @@
-## Where do young cows eat lunch? In the calf-ateria.
+## Where do rabbits go after they get married? On a bunny-moon.
