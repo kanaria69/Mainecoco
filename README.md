@@ -1,1 +1,1 @@
-## Why don't eggs tell jokes? They'd crack each other up
+## Why do wizards clean their teeth three times a day? To prevent bat breath!
