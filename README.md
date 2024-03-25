@@ -1,1 +1,1 @@
-## What do you call an elephant that doesn’t matter? An irrelephant.
+## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
