@@ -1,1 +1,1 @@
-## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
+## New atoms frequently lose electrons when they fail to keep an ion them.
