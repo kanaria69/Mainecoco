@@ -1,1 +1,1 @@
-## What do you call a careful wolf? Aware wolf.
+## Where do young cows eat lunch? In the calf-ateria.
