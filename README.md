@@ -1,1 +1,1 @@
-## A police officer caught two kids playing with a firework and a car battery. He charged one and let the other one off.
+## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
