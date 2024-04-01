@@ -1,2 +1,1 @@
-## Where do cats write notes?
-## Scratch Paper!
+## Where do sheep go to get their hair cut? The baa-baa shop.
