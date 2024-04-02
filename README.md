@@ -1,1 +1,1 @@
-## Why do cows not have toes? They lactose!
+## How much does a hipster weigh? An instagram.
