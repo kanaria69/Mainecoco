@@ -1,1 +1,1 @@
-## A cannibal is someone who is fed up with people.
+## Why do cows not have toes? They lactose!
