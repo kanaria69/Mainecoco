@@ -1,1 +1,1 @@
-## Why did the belt go to prison? He held up a pair of pants!
+## I saw my husband trip and fall while carrying a laundry basket full of ironed clothes. I watched it all unfold.
