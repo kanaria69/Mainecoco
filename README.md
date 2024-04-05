@@ -1,1 +1,1 @@
-## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
+## Me and my mates are in a band called Duvet. We're a cover band.
