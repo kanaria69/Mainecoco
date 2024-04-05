@@ -1,1 +1,1 @@
-## What did the grape do when he got stepped on? He let out a little wine.
+## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
