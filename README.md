@@ -1,1 +1,1 @@
-## Why do pirates not know the alphabet? They always get stuck at "C".
+## Why are basketball players messy eaters? Because they are always dribbling.
