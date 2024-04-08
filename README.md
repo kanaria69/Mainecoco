@@ -1,1 +1,1 @@
-## Why did the man put his money in the freezer? He wanted cold hard cash!
+## Where do rabbits go after they get married? On a bunny-moon.
