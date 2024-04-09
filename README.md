@@ -1,1 +1,1 @@
-## What do you call a bear with no teeth? A gummy bear!
+## Why did the feline fail the lie detector test? Because he be lion.
