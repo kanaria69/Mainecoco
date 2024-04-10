@@ -1,1 +1,1 @@
-## I knew i shouldn’t have ate that seafood. Because now i’m feeling a little… Eel
+## What do computers and air conditioners have in common? They both become useless when you open windows.
