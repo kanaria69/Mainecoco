@@ -1,2 +1,2 @@
-## Where do cats write notes?
-## Scratch Paper!
+## What's large, grey, and doesn't matter?
+## An irrelephant.
