@@ -1,1 +1,1 @@
-## My dentist is the best, he even has a little plaque!
+## What do you get when you cross a rabbit with a water hose? Hare spray.
