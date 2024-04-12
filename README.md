@@ -1,1 +1,1 @@
-## Why is it so windy inside an arena? All those fans.
+## To the guy who invented zero... thanks for nothing.
