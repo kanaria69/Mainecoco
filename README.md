@@ -1,1 +1,1 @@
-## If you’re struggling to think of what to get someone for Christmas. Get them a fridge and watch their face light up when they open it.
+## I used to have a job at a calendar factory but I got the sack because I took a couple of days off.
