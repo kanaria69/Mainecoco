@@ -1,1 +1,1 @@
-## What do you call a sheep with no legs? A cloud.
+## I used to work in a shoe recycling shop. It was sole destroying.
