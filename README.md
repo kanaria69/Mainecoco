@@ -1,1 +1,1 @@
-## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
+## I boiled a funny bone last night and had a laughing stock
