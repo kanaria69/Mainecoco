@@ -1,1 +1,1 @@
-## I used to work in a shoe recycling shop. It was sole destroying.
+## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
