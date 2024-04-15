@@ -1,1 +1,1 @@
-## Why did the coffee file a police report? It got mugged.
+## Why did the man run around his bed? Because he was trying to catch up on his sleep!
