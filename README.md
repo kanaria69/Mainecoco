@@ -1,1 +1,1 @@
-## I boiled a funny bone last night and had a laughing stock
+## Why did the coffee file a police report? It got mugged.
