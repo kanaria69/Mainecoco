@@ -1,1 +1,1 @@
-## Why did the belt go to prison? He held up a pair of pants!
+## Can a kangaroo jump higher than the Empire State Building? Of course. The Empire State Building can't jump.
