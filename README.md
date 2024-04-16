@@ -1,1 +1,1 @@
-## Wife told me to take the spider out instead of killing it... We had some drinks, cool guy, wants to be a web developer.
+## Did you hear the one about the guy with the broken hearing aid? Neither did he.
