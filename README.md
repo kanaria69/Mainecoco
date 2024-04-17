@@ -1,1 +1,1 @@
-## Can a kangaroo jump higher than the Empire State Building? Of course. The Empire State Building can't jump.
+## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
