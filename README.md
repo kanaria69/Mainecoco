@@ -1,1 +1,1 @@
-## They laughed when I said I wanted to be a comedian – they’re not laughing now.
+## I remember when I was a kid, I opened my fridge and noticed one of my vegetables were crying. I guess I have some emotional cabbage.
