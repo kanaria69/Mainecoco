@@ -1,1 +1,1 @@
-## I remember when I was a kid, I opened my fridge and noticed one of my vegetables were crying. I guess I have some emotional cabbage.
+## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
