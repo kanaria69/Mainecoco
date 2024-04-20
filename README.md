@@ -1,1 +1,3 @@
-## What's red and bad for your teeth? A Brick.
+## Never Trust Someone With Graph Paper...
+## 
+## They're always plotting something.
