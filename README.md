@@ -1,1 +1,1 @@
-## What do you get hanging from Apple trees? Sore arms.
+## I ordered a chicken and an egg from Amazon. I'll let you know.
