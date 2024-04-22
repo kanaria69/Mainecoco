@@ -1,1 +1,1 @@
-## Why did the banana go to the doctor? He was not "peeling" well.
+## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
