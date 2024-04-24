@@ -1,1 +1,1 @@
-## What do you call a criminal going down the stairs? Condescending
+## What did the calculator say to the student? You can count on me.
