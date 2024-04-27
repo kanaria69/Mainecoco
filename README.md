@@ -1,1 +1,1 @@
-## What did the piece of bread say to the knife? Butter me up.
+## How does a French skeleton say hello? Bone-jour.
