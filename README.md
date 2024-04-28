@@ -1,1 +1,1 @@
-## Where did Captain Hook get his hook? From a second hand store.
+## Writing with a broken pencil is pointless.
