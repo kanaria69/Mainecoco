@@ -1,1 +1,1 @@
-## I was shocked when I was diagnosed as colorblind... It came out of the purple.
+## The Swiss must've been pretty confident in their chances of victory if they included a corkscrew in their army knife.
