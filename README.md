@@ -1,1 +1,1 @@
-## Just watched a documentary about beavers… It was the best damn program I’ve ever seen.
+## They laughed when I said I wanted to be a comedian – they’re not laughing now.
