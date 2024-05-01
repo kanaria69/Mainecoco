@@ -1,1 +1,1 @@
-## To be Frank, I'd have to change my name.
+## I made a playlist for hiking. It has music from Peanuts, The Cranberries, and Eminem. I call it my Trail Mix.
