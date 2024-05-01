@@ -1,1 +1,1 @@
-## It was raining cats and dogs the other day. I almost stepped in a poodle.
+## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
