@@ -1,1 +1,1 @@
-## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
+## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
