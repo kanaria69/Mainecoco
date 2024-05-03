@@ -1,1 +1,1 @@
-## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
+## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
