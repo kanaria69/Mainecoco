@@ -1,1 +1,1 @@
-## What did the late tomato say to the early tomato? I’ll ketch up
+## A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
