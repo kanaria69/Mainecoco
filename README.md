@@ -1,1 +1,1 @@
-## A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
+## Somebody stole my Microsoft Office and they're going to pay - you have my Word.
