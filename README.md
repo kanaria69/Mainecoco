@@ -1,1 +1,1 @@
-## What do you get when you cross a chicken with a skunk? A fowl smell!
+## Someone broke into my house last night and stole my limbo trophy. How low can you go?
