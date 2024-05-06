@@ -1,1 +1,1 @@
-## I decided to sell my Hoover… well it was just collecting dust.
+## To the guy who invented zero... thanks for nothing.
