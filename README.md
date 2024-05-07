@@ -1,1 +1,1 @@
-## Two dyslexics walk into a bra.
+## What did the mountain climber name his son? Cliff.
