@@ -1,1 +1,1 @@
-## A man tried to sell me a coffin today. I told him that's the last thing I need.
+## Why did the man run around his bed? Because he was trying to catch up on his sleep!
