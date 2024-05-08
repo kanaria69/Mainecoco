@@ -1,1 +1,1 @@
-## What's the difference between roast beef and pea soup. Anyone can roast beef, but nobody can pee soup.
+## A man tried to sell me a coffin today. I told him that's the last thing I need.
