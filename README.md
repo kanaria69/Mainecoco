@@ -1,1 +1,1 @@
-## What do you call two guys hanging out by your window? Kurt & Rod.
+## Why did the man run around his bed? Because he was trying to catch up on his sleep!
