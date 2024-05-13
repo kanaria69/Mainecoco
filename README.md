@@ -1,3 +1,1 @@
-## What's the worst part about being a cross-eyed teacher?
-## 
-## They can't control their pupils.
+## What’s the advantage of living in Switzerland? Well, the flag is a big plus.
