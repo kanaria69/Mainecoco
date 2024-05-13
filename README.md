@@ -1,1 +1,3 @@
-## Did you hear about the scientist who was lab partners with a pot of boiling water? He had a very esteemed colleague.
+## What's the worst part about being a cross-eyed teacher?
+## 
+## They can't control their pupils.
