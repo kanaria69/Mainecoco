@@ -1,1 +1,1 @@
-## What did Yoda say when he saw himself in 4K? "HDMI"
+## "Why do seagulls fly over the ocean?" "Because if they flew over the bay, we'd call them bagels."
