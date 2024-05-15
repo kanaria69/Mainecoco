@@ -1,1 +1,2 @@
-## What did one nut say as he chased another nut?  I'm a cashew!
+## What did the hat say to the scarf?
+## You can hang around. I'll just go on ahead.
