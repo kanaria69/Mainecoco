@@ -1,1 +1,1 @@
-## My dentist is the best, he even has a little plaque!
+## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
