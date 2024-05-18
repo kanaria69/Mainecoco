@@ -1,1 +1,1 @@
-## When do doctors get angry? When they run out of patients.
+## What kind of dog lives in a particle accelerator? A Fermilabrador Retriever.
