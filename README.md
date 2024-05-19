@@ -1,1 +1,1 @@
-## What's blue and not very heavy?  Light blue.
+## I’m on a whiskey diet. I’ve lost three days already.
