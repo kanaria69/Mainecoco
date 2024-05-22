@@ -1,1 +1,1 @@
-## How do you teach a kid to climb stairs? There is a step by step guide.
+## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
