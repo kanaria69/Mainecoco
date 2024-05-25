@@ -1,1 +1,1 @@
-## What do you call a nervous javelin thrower? Shakespeare.
+## The other day I was listening to a song about superglue, it’s been stuck in my head ever since.
