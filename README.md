@@ -1,1 +1,1 @@
-## I had a rough day, and then somebody went and ripped the front and back pages from my dictionary. It just goes from bad to worse.
+## Want to hear a chimney joke? Got stacks of em! First one's on the house
