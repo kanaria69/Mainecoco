@@ -1,1 +1,1 @@
-## Want to hear a chimney joke? Got stacks of em! First one's on the house
+## I've got a joke about vegetables for you... but it's a bit corny.
