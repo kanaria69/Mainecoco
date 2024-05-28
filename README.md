@@ -1,1 +1,1 @@
-## Why is the ocean always blue? Because the shore never waves back.
+## Why is no one friends with Dracula? Because he's a pain in the neck.
