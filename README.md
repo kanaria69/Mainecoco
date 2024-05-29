@@ -1,2 +1,1 @@
-## Why did the cookie cry?
-## Because his mother was a wafer so long
+## Somebody stole my Microsoft Office and they're going to pay - you have my Word.
