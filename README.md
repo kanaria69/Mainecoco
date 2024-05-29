@@ -1,1 +1,2 @@
-## Why did the feline fail the lie detector test? Because he be lion.
+## Why did the cookie cry?
+## Because his mother was a wafer so long
