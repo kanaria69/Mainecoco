@@ -1,1 +1,1 @@
-## What do you get when you cross a snowman with a vampire? Frostbite.
+## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
