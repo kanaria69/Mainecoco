@@ -1,1 +1,1 @@
-## Leather is great for sneaking around because it's made of hide.
+## Did you hear about the runner who was criticized? He just took it in stride
