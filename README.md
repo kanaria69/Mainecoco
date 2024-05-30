@@ -1,1 +1,1 @@
-## Did you hear about the runner who was criticized? He just took it in stride
+## What do you get when you cross a snowman with a vampire? Frostbite.
