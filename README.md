@@ -1,1 +1,1 @@
-## Why does Superman get invited to dinners? Because he is a Supperhero.
+## A beekeeper was indicted after he confessed to years of stealing at work. They charged him with emBEEzlement
