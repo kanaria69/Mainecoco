@@ -1,1 +1,1 @@
-## Parallel lines have so much in common. It’s a shame they’ll never meet.
+## Remember, the best angle to approach a problem from is the "try" angle.
