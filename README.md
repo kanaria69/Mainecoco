@@ -1,1 +1,1 @@
-## What did the scarf say to the hat? You go on ahead, I am going to hang around a bit longer.
+## Why can't you use "Beef stew" as a password? Because it's not stroganoff.
