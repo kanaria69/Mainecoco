@@ -1,1 +1,2 @@
-## What do you call a cow with no legs? Ground beef.
+## Why don't you find hippopotamuses hiding in trees?
+## They're really good at it.
