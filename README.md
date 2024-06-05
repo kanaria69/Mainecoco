@@ -1,1 +1,1 @@
-## Why do valley girls hang out in odd numbered groups? Because they can't even.
+## Why did the man run around his bed? Because he was trying to catch up on his sleep!
