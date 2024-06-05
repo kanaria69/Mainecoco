@@ -1,1 +1,1 @@
-## You can't run through a camp site. You can only ran, because it's past tents.
+## Why do valley girls hang out in odd numbered groups? Because they can't even.
