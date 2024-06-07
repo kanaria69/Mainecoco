@@ -1,1 +1,1 @@
-## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
+## A man walks into a bar and orders helicopter flavor chips. The barman replies “sorry mate we only do plain”
