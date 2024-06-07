@@ -1,1 +1,1 @@
-## What biscuit does a short person like? Shortbread. 
+## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
