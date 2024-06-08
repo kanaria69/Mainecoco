@@ -1,1 +1,1 @@
-## Recent survey revealed 6 out of 7 dwarf's aren't happy.
+## It doesn't matter how much you push the envelope. It will still be stationary.
