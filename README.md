@@ -1,1 +1,1 @@
-## It doesn't matter how much you push the envelope. It will still be stationary.
+## What did the ocean say to the beach? Thanks for all the sediment.
