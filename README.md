@@ -1,1 +1,1 @@
-## Why did the belt go to prison? He held up a pair of pants!
+## What animal is always at a game of cricket? A bat.
