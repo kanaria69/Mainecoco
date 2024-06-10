@@ -1,1 +1,1 @@
-## I used to be addicted to soap, but I'm clean now.
+## I had a pair of racing snails. I removed their shells to make them more aerodynamic, but they became sluggish.
