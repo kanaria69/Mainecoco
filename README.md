@@ -1,1 +1,1 @@
-## Why are graveyards so noisy? Because of all the coffin.
+## Shout out to my grandma, that's the only way she can hear.
