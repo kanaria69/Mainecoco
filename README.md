@@ -1,1 +1,1 @@
-## What did the left eye say to the right eye? Between us, something smells!
+## A beekeeper was indicted after he confessed to years of stealing at work. They charged him with emBEEzlement
