@@ -1,1 +1,1 @@
-## Mountains aren't just funny, they are hill areas
+## “Doctor, I’ve broken my arm in several places” Doctor “Well don’t go to those places.”
