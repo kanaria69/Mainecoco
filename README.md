@@ -1,1 +1,1 @@
-## Why did the feline fail the lie detector test? Because he be lion.
+## Can a kangaroo jump higher than the Empire State Building? Of course. The Empire State Building can't jump.
