@@ -1,1 +1,1 @@
-## What did the ocean say to the shore? Nothing, it just waved.
+## I used to be a banker, but I lost interest.
