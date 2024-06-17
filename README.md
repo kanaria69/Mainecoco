@@ -1,1 +1,1 @@
-## If two vegans are having an argument, is it still considered beef?
+## Bad at golf? Join the club.
