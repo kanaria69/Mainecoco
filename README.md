@@ -1,1 +1,1 @@
-## Bad at golf? Join the club.
+## What do you get hanging from Apple trees? Sore arms.
