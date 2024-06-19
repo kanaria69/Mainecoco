@@ -1,2 +1,1 @@
-## Some people say that I never got over my obsession with Phil Collins.
-## But take a look at me now.
+## A boy dug three holes in the yard. When his mother saw, she exclaimed: "well, well, well"
