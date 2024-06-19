@@ -1,2 +1,2 @@
-## Q: What did the spaghetti say to the other spaghetti?
-## A: Pasta la vista, baby!
+## Some people say that I never got over my obsession with Phil Collins.
+## But take a look at me now.
