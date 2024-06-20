@@ -1,1 +1,1 @@
-## A magician was driving down the street and then he turned into a driveway.
+## Why do valley girls hang out in odd numbered groups? Because they can't even.
