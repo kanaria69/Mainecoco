@@ -1,1 +1,1 @@
-## Why do valley girls hang out in odd numbered groups? Because they can't even.
+## A farmer had 297 cows, when he rounded them up, he found he had 300
