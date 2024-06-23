@@ -1,1 +1,1 @@
-## I used to work in a shoe recycling shop. It was sole destroying.
+## Why do nurses carry around red crayons? Sometimes they need to draw blood.
