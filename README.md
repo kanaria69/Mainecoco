@@ -1,1 +1,1 @@
-## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
+## “Doctor, I’ve broken my arm in several places” Doctor “Well don’t go to those places.”
