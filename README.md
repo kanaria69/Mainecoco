@@ -1,1 +1,1 @@
-## “Doctor, I’ve broken my arm in several places” Doctor “Well don’t go to those places.”
+## An apple a day keeps the bullies away. If you throw it hard enough.
