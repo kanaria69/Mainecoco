@@ -1,1 +1,1 @@
-## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
+## Our wedding was so beautiful, even the cake was in tiers.
