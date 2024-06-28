@@ -1,1 +1,1 @@
-## Our wedding was so beautiful, even the cake was in tiers.
+## Did you hear that the police have a warrant out on a midget psychic ripping people off? It reads “Small medium at large.”
