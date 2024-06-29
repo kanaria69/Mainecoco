@@ -1,1 +1,1 @@
-## A man is washing the car with his son. The son asks...... "Dad, can’t you just use a sponge?"
+## What's the difference between a guitar and a fish? You can tune a guitar but you can't "tuna" fish!
