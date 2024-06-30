@@ -1,1 +1,1 @@
-## A cannibal is someone who is fed up with people.
+## What's a ninja's favorite type of shoes? Sneakers!
