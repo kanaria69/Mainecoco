@@ -1,1 +1,1 @@
-## Why did the coffee file a police report? It got mugged.
+## What do you call a boy who stopped digging holes? Douglas.
