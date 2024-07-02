@@ -1,2 +1,1 @@
-## Why did Mozart kill all his chickens?
-## Because when he asked them who the best composer was, they'd all say "Bach bach bach!"
+## Why did the Clydesdale give the pony a glass of water?  Because he was a little horse!
