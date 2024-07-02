@@ -1,1 +1,2 @@
-## The other day I was listening to a song about superglue, it’s been stuck in my head ever since.
+## Why did Mozart kill all his chickens?
+## Because when he asked them who the best composer was, they'd all say "Bach bach bach!"
