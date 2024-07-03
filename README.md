@@ -1,1 +1,1 @@
-## How do you make a hankie dance? Put a little boogie in it.
+## Why do mathematicians hate the U.S.? Because it's indivisible.
