@@ -1,1 +1,1 @@
-## Why are fish easy to weigh? Because they have their own scales.
+## Every morning when I go out, I get hit by bicycle. Every morning!  It's a vicious cycle.
