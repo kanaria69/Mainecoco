@@ -1,1 +1,1 @@
-## I asked a frenchman if he played video games. He said "Wii"
+## What do prisoners use to call each other? Cell phones.
