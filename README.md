@@ -1,1 +1,1 @@
-## What did one plate say to the other plate? Dinner is on me!
+## Why do bananas have to put on sunscreen before they go to the beach? Because they might peel!
