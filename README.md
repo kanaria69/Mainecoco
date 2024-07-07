@@ -1,1 +1,1 @@
-## Why was ten scared of seven? Because seven ate nine.
+## What did one plate say to the other plate? Dinner is on me!
