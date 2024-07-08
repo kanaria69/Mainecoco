@@ -1,1 +1,1 @@
-## What do you get hanging from Apple trees? Sore arms.
+## Our wedding was so beautiful, even the cake was in tiers.
