@@ -1,1 +1,1 @@
-## What do you call a careful wolf? Aware wolf.
+## A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
