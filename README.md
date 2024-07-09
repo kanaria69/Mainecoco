@@ -1,1 +1,1 @@
-## A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
+## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
