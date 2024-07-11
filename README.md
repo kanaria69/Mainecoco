@@ -1,1 +1,1 @@
-## I decided to sell my Hoover… well it was just collecting dust.
+## They tried to make a diamond shaped like a duck. It quacked under the pressure.
