@@ -1,1 +1,1 @@
-## Why was the shirt happy to hang around the tank top? Because it was armless
+## Did you hear about the campsite that got visited by Bigfoot? It got in tents.
