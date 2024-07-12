@@ -1,1 +1,1 @@
-## When Dad drops a pea off of his plate ‘oh dear I’ve pee’d on the table!
+## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
