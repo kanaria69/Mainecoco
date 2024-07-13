@@ -1,1 +1,1 @@
-## My wife is on a tropical fruit diet, the house is full of stuff. It is enough to make a mango crazy.
+## Why is it always hot in the corner of a room? Because a corner is 90 degrees.
