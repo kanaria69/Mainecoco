@@ -1,1 +1,1 @@
-## A man walks into a bar and orders helicopter flavor chips. The barman replies “sorry mate we only do plain”
+## Did you hear about the two thieves who stole a calendar? They each got six months.
