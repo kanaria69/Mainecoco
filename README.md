@@ -1,2 +1,1 @@
-## What do you do when you see a space man?
-## Park your car, man.
+## Where do hamburgers go to dance? The meat-ball.
