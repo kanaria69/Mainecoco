@@ -1,1 +1,1 @@
-## Did you hear about the two thieves who stole a calendar? They each got six months.
+## I accidentally drank a bottle of invisible ink. Now I’m in hospital, waiting to be seen.
