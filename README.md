@@ -1,3 +1,2 @@
-## Why do pumpkins sit on people’s porches?
-## 
-## They have no hands to knock on the door.
+## Why don't you find hippopotamuses hiding in trees?
+## They're really good at it.
