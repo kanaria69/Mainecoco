@@ -1,1 +1,1 @@
-## What does an angry pepper do? It gets jalapeño face.
+## What did the grape do when he got stepped on? He let out a little wine.
