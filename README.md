@@ -1,1 +1,1 @@
-## Did you hear the one about the guy with the broken hearing aid? Neither did he.
+## What does an angry pepper do? It gets jalapeño face.
