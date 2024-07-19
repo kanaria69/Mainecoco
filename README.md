@@ -1,1 +1,1 @@
-## What do computers and air conditioners have in common? They both become useless when you open windows.
+## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
