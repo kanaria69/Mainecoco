@@ -1,1 +1,1 @@
-## How do you tell the difference between a crocodile and an alligator? You will see one later and one in a while.
+## What do you get when you cross a pig and a pineapple? A porky pine
