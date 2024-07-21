@@ -1,1 +1,1 @@
-## I ordered a chicken and an egg from Amazon. I'll let you know.
+## Why doesn't the Chimney-Sweep call out sick from work? Because he's used to working with a flue.
