@@ -1,1 +1,1 @@
-## A cannibal is someone who is fed up with people.
+## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
