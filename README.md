@@ -1,1 +1,1 @@
-## I don't trust sushi, there's something fishy about it.
+## Why are fish so smart? Because they live in schools!
