@@ -1,1 +1,1 @@
-## Why did the barber win the race? He took a short cut.
+## What did the ocean say to the shore? Nothing, it just waved.
