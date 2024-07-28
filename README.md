@@ -1,1 +1,1 @@
-## Milk is also the fastest liquid on earth – its pasteurized before you even see it
+## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
