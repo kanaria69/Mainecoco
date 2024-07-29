@@ -1,1 +1,1 @@
-## Why do ducks make great detectives? They always quack the case.
+## Why did the man put his money in the freezer? He wanted cold hard cash!
