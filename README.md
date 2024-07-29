@@ -1,1 +1,1 @@
-## What don't watermelons get married? Because they cantaloupe.
+## Why do ducks make great detectives? They always quack the case.
