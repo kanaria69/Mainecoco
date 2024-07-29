@@ -1,1 +1,1 @@
-## What is the hardest part about sky diving? The ground.
+## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
