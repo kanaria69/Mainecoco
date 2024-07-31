@@ -1,1 +1,1 @@
-## A bartender broke up with her boyfriend, but he kept asking her for another shot.
+## You know that cemetery up the road? People are dying to get in there.
