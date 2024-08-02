@@ -1,1 +1,1 @@
-## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
+## How do you steal a coat? You jacket.
