@@ -1,1 +1,1 @@
-## I couldn't get a reservation at the library. They were completely booked.
+## A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
