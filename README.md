@@ -1,1 +1,1 @@
-## A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
+## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
