@@ -1,1 +1,1 @@
-## What's brown and sticky? A stick.
+## I couldn't get a reservation at the library. They were completely booked.
