@@ -1,1 +1,1 @@
-## Why is it so windy inside an arena? All those fans.
+## How do you find Will Smith in the snow?  Look for fresh prints.
