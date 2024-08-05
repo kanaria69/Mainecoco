@@ -1,1 +1,1 @@
-## R.I.P. boiled water. You will be mist.
+## Dermatologists are always in a hurry. They spend all day making rash decisions. 
