@@ -1,1 +1,1 @@
-## Thanks for explaining the word "many" to me. It means a lot.
+## What animal is always at a game of cricket? A bat.
