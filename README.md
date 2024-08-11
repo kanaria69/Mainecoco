@@ -1,1 +1,1 @@
-## What kind of dog lives in a particle accelerator? A Fermilabrador Retriever.
+## Why was the big cat disqualified from the race? Because it was a cheetah.
