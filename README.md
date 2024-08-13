@@ -1,1 +1,1 @@
-## I was shocked when I was diagnosed as colorblind... It came out of the purple.
+## Why couldn't the kid see the pirate movie? Because it was rated arrr!
