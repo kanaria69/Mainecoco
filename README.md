@@ -1,1 +1,1 @@
-## Why couldn't the kid see the pirate movie? Because it was rated arrr!
+## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
