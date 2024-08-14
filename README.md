@@ -1,1 +1,1 @@
-## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
+## What's the difference between a rooster and a crow? A rooster can crow but a crow cannot rooster.
