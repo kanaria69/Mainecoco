@@ -1,1 +1,1 @@
-## What does a pirate pay for his corn? A buccaneer!
+## Why do crabs never give to charity? Because they’re shellfish.
