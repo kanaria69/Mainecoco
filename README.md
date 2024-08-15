@@ -1,1 +1,1 @@
-## R.I.P. boiled water. You will be mist.
+## What does a pirate pay for his corn? A buccaneer!
