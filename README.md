@@ -1,1 +1,1 @@
-## Why do crabs never give to charity? Because they’re shellfish.
+## Where do you take someone who’s been injured in a peek-a-boo accident? To the I.C.U.
