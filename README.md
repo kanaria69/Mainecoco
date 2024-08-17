@@ -1,1 +1,1 @@
-## A man is washing the car with his son. The son asks...... "Dad, can’t you just use a sponge?"
+## I couldn't figure out how the seat belt worked. Then it just clicked.
