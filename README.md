@@ -1,1 +1,1 @@
-## Writing with a broken pencil is pointless.
+## Atheism is a non-prophet organisation.
