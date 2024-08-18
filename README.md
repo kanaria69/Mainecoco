@@ -1,1 +1,1 @@
-## Atheism is a non-prophet organisation.
+## Why do bears have hairy coats? Fur protection.
