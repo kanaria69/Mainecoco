@@ -1,1 +1,1 @@
-## What did the shy pebble wish for? That she was a little boulder.
+## Some people eat light bulbs. They say it's a nice light snack.
