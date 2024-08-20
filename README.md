@@ -1,1 +1,1 @@
-## Where does Napoleon keep his armies? In his sleevies.
+## How do you make Lady Gaga cry? Poker face. 
