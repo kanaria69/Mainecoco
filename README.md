@@ -1,1 +1,1 @@
-## What does an angry pepper do? It gets jalapeño face.
+## What's the difference between roast beef and pea soup. Anyone can roast beef, but nobody can pee soup.
