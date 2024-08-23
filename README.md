@@ -1,1 +1,1 @@
-## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
+## What don't watermelons get married? Because they cantaloupe.
