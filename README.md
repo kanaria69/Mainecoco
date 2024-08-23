@@ -1,1 +1,1 @@
-## What did the ocean say to the beach? Thanks for all the sediment.
+## Where did Captain Hook get his hook? From a second hand store.
