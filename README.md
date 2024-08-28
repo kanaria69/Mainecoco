@@ -1,1 +1,1 @@
-## Why do choirs keep buckets handy? So they can carry their tune
+## Coffee has a tough time at my house, every morning it gets mugged.
