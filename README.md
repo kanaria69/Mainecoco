@@ -1,1 +1,1 @@
-## Coffee has a tough time at my house, every morning it gets mugged.
+## How do you find Will Smith in the snow?  Look for fresh prints.
