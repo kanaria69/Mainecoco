@@ -1,1 +1,1 @@
-## I’ll tell you something about German sausages, they’re the wurst
+## I used to work in a shoe recycling shop. It was sole destroying.
