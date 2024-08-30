@@ -1,1 +1,3 @@
-## It's been months since I bought the book "how to scam people online". It still hasn't turned up.
+## What's the worst part about being a cross-eyed teacher?
+## 
+## They can't control their pupils.
