@@ -1,1 +1,1 @@
-## I used to work in a shoe recycling shop. It was sole destroying.
+## It's been months since I bought the book "how to scam people online". It still hasn't turned up.
