@@ -1,1 +1,1 @@
-## Why is there always a gate around cemeteries? Because people are always dying to get in.
+## Why do birds fly south for the winter? Because it's too far to walk.
