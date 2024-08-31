@@ -1,3 +1,1 @@
-## What's the worst part about being a cross-eyed teacher?
-## 
-## They can't control their pupils.
+## Why is there always a gate around cemeteries? Because people are always dying to get in.
