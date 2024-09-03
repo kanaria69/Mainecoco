@@ -1,1 +1,1 @@
-## What did the left eye say to the right eye? Between us, something smells!
+## Why do nurses carry around red crayons? Sometimes they need to draw blood.
