@@ -1,1 +1,1 @@
-## Did you know crocodiles could grow up to 15 feet? But most just have 4.
+## Why does a chicken coop only have two doors? Because if it had four doors it would be a chicken sedan.
