@@ -1,1 +1,1 @@
-## Why do cows wear bells? Because their horns don't work.
+## To the person who stole my anti-depressant pills: I hope you're happy now.
