@@ -1,1 +1,1 @@
-## To the person who stole my anti-depressant pills: I hope you're happy now.
+## A man got hit in the head with a can of Coke, but he was alright because it was a soft drink.
