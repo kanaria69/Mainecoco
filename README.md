@@ -1,1 +1,1 @@
-## What do you call a bear with no teeth? A gummy bear!
+## I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
