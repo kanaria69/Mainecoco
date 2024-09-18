@@ -1,1 +1,1 @@
-## What's the difference between a hippo and a zippo? One is really heavy, the other is a little lighter.
+## I wouldn't buy anything with velcro. It's a total rip-off.
