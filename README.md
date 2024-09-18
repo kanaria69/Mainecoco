@@ -1,1 +1,3 @@
-## I don’t play soccer because I enjoy the sport. I’m just doing it for kicks.
+## What was the pumpkin’s favorite sport?
+## 
+## Squash.
