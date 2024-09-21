@@ -1,1 +1,1 @@
-## What is a tornado's favorite game to play? Twister!
+## Why can't eggs have love? They will break up too soon.
