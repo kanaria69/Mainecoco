@@ -1,1 +1,1 @@
-## Why was Pavlov's beard so soft?  Because he conditioned it.
+## A Sandwich walks into a bar, the bartender says “Sorry, we don’t serve food here”
