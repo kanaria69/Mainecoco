@@ -1,1 +1,1 @@
-## Where do hamburgers go to dance? The meat-ball.
+## How do you get a baby alien to sleep?  You rocket.
