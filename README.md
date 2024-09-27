@@ -1,1 +1,1 @@
-## How much does a hipster weigh? An instagram.
+## What did the pirate say on his 80th birthday? Aye Matey!
