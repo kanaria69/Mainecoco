@@ -1,1 +1,1 @@
-## I used to have a job at a calendar factory but I got the sack because I took a couple of days off.
+## My new thesaurus is terrible. In fact, it's so bad, I'd say it's terrible.
