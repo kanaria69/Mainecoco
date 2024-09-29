@@ -1,1 +1,1 @@
-## Why did the chicken get a penalty? For fowl play.
+## I couldn't get a reservation at the library. They were completely booked.
