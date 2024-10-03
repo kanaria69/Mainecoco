@@ -1,1 +1,1 @@
-## Why did the coffee file a police report? It got mugged.
+## What do birds give out on Halloween? Tweets.
