@@ -1,1 +1,1 @@
-## Why did the coffee file a police report? It got mugged.
+## Parallel lines have so much in common. It’s a shame they’ll never meet.
