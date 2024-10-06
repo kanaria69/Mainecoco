@@ -1,1 +1,1 @@
-## What did the father tomato say to the baby tomato whilst on a family walk? Ketchup.
+## Parallel lines have so much in common. It’s a shame they’ll never meet.
