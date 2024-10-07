@@ -1,1 +1,1 @@
-## How does a French skeleton say hello? Bone-jour.
+## Where did you learn to make ice cream? Sunday school.
