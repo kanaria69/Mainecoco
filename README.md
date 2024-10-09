@@ -1,1 +1,1 @@
-## What do you call your friend who stands in a hole? Phil.
+## It doesn't matter how much you push the envelope. It will still be stationary.
