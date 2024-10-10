@@ -1,1 +1,1 @@
-## What is a tornado's favorite game to play? Twister!
+## Me and my mates are in a band called Duvet. We're a cover band.
