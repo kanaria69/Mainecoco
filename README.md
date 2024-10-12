@@ -1,1 +1,1 @@
-## Did you hear that David lost his ID in prague? Now we just have to call him Dav.
+## Did you hear about the runner who was criticized? He just took it in stride
