@@ -1,1 +1,1 @@
-## My wife is on a tropical fruit diet, the house is full of stuff. It is enough to make a mango crazy.
+## Did you hear that David lost his ID in prague? Now we just have to call him Dav.
