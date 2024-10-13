@@ -1,1 +1,1 @@
-## Where’s the bin? Dad: I haven’t been anywhere!
+## Wife told me to take the spider out instead of killing it... We had some drinks, cool guy, wants to be a web developer.
