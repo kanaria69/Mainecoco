@@ -1,1 +1,1 @@
-## I used to hate facial hair, but then it grew on me.
+## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
