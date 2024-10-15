@@ -1,1 +1,1 @@
-## What do you call a pig that knows karate? A pork chop!
+## What's orange and sounds like a parrot? A Carrot.
