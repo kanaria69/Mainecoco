@@ -1,1 +1,1 @@
-## I have kleptomania, but when it gets bad, I take something for it.
+## "Why do seagulls fly over the ocean?" "Because if they flew over the bay, we'd call them bagels."
