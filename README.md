@@ -1,1 +1,1 @@
-## I don't trust sushi, there's something fishy about it.
+## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
