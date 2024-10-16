@@ -1,1 +1,1 @@
-## What's orange and sounds like a parrot? A Carrot.
+## A ghost walks into a bar and asks for a glass of vodka but the bar tender says, “sorry we don’t serve spirits”
