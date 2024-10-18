@@ -1,1 +1,1 @@
-## Did you hear about the two thieves who stole a calendar? They each got six months.
+## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
