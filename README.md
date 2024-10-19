@@ -1,1 +1,1 @@
-## How much does a hipster weigh? An instagram.
+## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
