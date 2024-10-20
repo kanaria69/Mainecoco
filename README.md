@@ -1,1 +1,1 @@
-## When you have a bladder infection, urine trouble.
+## “Hold on, I have something in my shoe”  “I’m pretty sure it’s a foot”
