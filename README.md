@@ -1,1 +1,1 @@
-## I went to a book store and asked the saleswoman where the Self Help section was, she said if she told me it would defeat the purpose.
+## I broke my finger at work today, on the other hand I'm completely fine.
