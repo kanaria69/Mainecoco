@@ -1,1 +1,1 @@
-## Why do ducks make great detectives? They always quack the case.
+## I heard there was a new store called Moderation. They have everything there
