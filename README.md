@@ -1,2 +1,1 @@
-## What is the best way to carve?
-## Whittle by whittle.
+## Is there a hole in your shoe? No… Then how’d you get your foot in it?
