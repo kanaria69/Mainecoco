@@ -1,1 +1,1 @@
-## What do you call a fashionable lawn statue with an excellent sense of rhythmn? A metro-gnome
+## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
