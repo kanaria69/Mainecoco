@@ -1,1 +1,1 @@
-## I burned 2000 calories today, I left my food in the oven for too long.
+## I adopted my dog from a blacksmith. As soon as we got home he made a bolt for the door.
