@@ -1,1 +1,1 @@
-## What did the piece of bread say to the knife? Butter me up.
+## I was shocked when I was diagnosed as colorblind... It came out of the purple.
