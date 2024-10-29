@@ -1,1 +1,1 @@
-## Why couldn't the kid see the pirate movie? Because it was rated arrr!
+## How many South Americans does it take to change a lightbulb? A Brazilian
