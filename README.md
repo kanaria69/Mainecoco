@@ -1,1 +1,1 @@
-## What's the best thing about elevator jokes? They work on so many levels.
+## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
