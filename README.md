@@ -1,1 +1,1 @@
-## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
+## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
