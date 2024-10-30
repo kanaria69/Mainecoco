@@ -1,1 +1,1 @@
-## What was a more important invention than the first telephone? The second one.
+## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
