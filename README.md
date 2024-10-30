@@ -1,1 +1,1 @@
-## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
+## What's the best thing about elevator jokes? They work on so many levels.
