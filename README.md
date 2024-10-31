@@ -1,1 +1,1 @@
-## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
+## I had a pair of racing snails. I removed their shells to make them more aerodynamic, but they became sluggish.
