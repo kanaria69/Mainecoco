@@ -1,1 +1,1 @@
-## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
+## I've got a joke about vegetables for you... but it's a bit corny.
