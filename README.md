@@ -1,1 +1,1 @@
-## Did you know crocodiles could grow up to 15 feet? But most just have 4.
+## Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
