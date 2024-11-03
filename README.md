@@ -1,1 +1,1 @@
-## Remember, the best angle to approach a problem from is the "try" angle.
+## Why didn't the number 4 get into the nightclub? Because he is 2 square.
