@@ -1,1 +1,1 @@
-## We all know where the Big Apple is but does anyone know where the Minneapolis?
+## Is there a hole in your shoe? No… Then how’d you get your foot in it?
