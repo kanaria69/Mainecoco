@@ -1,1 +1,1 @@
-## How do you find Will Smith in the snow?  Look for fresh prints.
+## We all know where the Big Apple is but does anyone know where the Minneapolis?
