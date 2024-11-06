@@ -1,1 +1,1 @@
-## I ordered a chicken and an egg from Amazon. I'll let you know.
+## What did the left eye say to the right eye? Between us, something smells!
