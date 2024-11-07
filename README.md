@@ -1,1 +1,1 @@
-## Why did Dracula lie in the wrong coffin? He made a grave mistake.
+## Did you hear about the scientist who was lab partners with a pot of boiling water? He had a very esteemed colleague.
