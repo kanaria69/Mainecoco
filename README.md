@@ -1,1 +1,1 @@
-## What did one plate say to the other plate? Dinner is on me!
+## Why do nurses carry around red crayons? Sometimes they need to draw blood.
