@@ -1,1 +1,1 @@
-## I'm practicing for a bug-eating contest and I've got butterflies in my stomach.
+## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
