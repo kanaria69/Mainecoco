@@ -1,1 +1,1 @@
-## Why are fish so smart? Because they live in schools!
+## Why couldn't the kid see the pirate movie? Because it was rated arrr!
