@@ -1,1 +1,1 @@
-## What don't watermelons get married? Because they cantaloupe.
+## Why is no one friends with Dracula? Because he's a pain in the neck.
