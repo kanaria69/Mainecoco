@@ -1,1 +1,1 @@
-## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
+## I’ve just been reading a book about anti-gravity, it’s impossible to put down!
