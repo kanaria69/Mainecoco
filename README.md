@@ -1,1 +1,2 @@
-## I’ve just been reading a book about anti-gravity, it’s impossible to put down!
+## Cosmetic surgery used to be such a taboo subject.
+## Now you can talk about Botox and nobody raises an eyebrow.
