@@ -1,1 +1,1 @@
-## Writing with a broken pencil is pointless.
+## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
