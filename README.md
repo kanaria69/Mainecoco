@@ -1,1 +1,1 @@
-## Don't tell secrets in corn fields. Too many ears around.
+## This morning I was wondering where the sun was, but then it dawned on me.
