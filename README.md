@@ -1,1 +1,1 @@
-## Whoever invented the knock-knock joke should get a no bell prize.
+## What did the calculator say to the student? You can count on me.
