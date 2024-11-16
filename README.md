@@ -1,1 +1,1 @@
-## What do you call a bear with no teeth? A gummy bear!
+## A woman is on trial for beating her husband to death with his guitar collection. Judge says, ‘First offender?’ She says, ‘No, first a Gibson! Then a Fender!’
