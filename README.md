@@ -1,1 +1,1 @@
-## What did the calculator say to the student? You can count on me.
+## I tried to milk a cow today, but was unsuccessful. Udder failure.
