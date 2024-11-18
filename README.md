@@ -1,1 +1,1 @@
-## Why don't eggs tell jokes? They'd crack each other up
+## Why did the worker get fired from the orange juice factory? Lack of concentration.
