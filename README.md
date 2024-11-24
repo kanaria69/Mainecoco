@@ -1,1 +1,1 @@
-## Whats a penguins favorite relative? Aunt Arctica.
+## Why was Pavlov's beard so soft?  Because he conditioned it.
