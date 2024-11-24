@@ -1,1 +1,1 @@
-## Why was Pavlov's beard so soft?  Because he conditioned it.
+## What's the difference between a rooster and a crow? A rooster can crow but a crow cannot rooster.
