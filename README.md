@@ -1,1 +1,1 @@
-## What's the difference between a rooster and a crow? A rooster can crow but a crow cannot rooster.
+## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
