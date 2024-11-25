@@ -1,1 +1,1 @@
-## Leather is great for sneaking around because it's made of hide.
+## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
