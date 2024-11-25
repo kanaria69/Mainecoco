@@ -1,1 +1,1 @@
-## What do you call a sheep with no legs? A cloud.
+## Why do bears have hairy coats? Fur protection.
