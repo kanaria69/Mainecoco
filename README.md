@@ -1,1 +1,1 @@
-## How many bones are in the human hand? A handful of them.
+## Leather is great for sneaking around because it's made of hide.
