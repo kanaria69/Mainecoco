@@ -1,1 +1,1 @@
-## I can't take my dog to the pond anymore because the ducks keep attacking him. That's what I get for buying a pure bread dog.
+## Doctor you've got you help me, I'm addicted to twitter. Doctor: I don't follow you.
