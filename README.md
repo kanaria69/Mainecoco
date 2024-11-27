@@ -1,1 +1,1 @@
-## Why was the robot angry? Because someone kept pressing his buttons!
+## What did Yoda say when he saw himself in 4K? "HDMI"
