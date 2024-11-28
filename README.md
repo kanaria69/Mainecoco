@@ -1,2 +1,1 @@
-## What is the least spoken language in the world?
-## Sign Language
+## The other day, my wife asked me to pass her lipstick but I accidentally passed her a glue stick. She still isn't talking to me.
