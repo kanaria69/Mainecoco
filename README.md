@@ -1,1 +1,1 @@
-## I'm glad I know sign language, it's pretty handy.
+## Did you hear about the two thieves who stole a calendar? They each got six months.
