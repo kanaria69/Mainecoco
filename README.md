@@ -1,1 +1,1 @@
-## What did Yoda say when he saw himself in 4K? "HDMI"
+## I'm glad I know sign language, it's pretty handy.
