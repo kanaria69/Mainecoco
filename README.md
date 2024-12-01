@@ -1,1 +1,1 @@
-## This furniture store keeps emailing me, all I wanted was one night stand!
+## What's the difference between a rooster and a crow? A rooster can crow but a crow cannot rooster.
