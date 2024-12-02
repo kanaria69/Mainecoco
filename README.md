@@ -1,1 +1,1 @@
-## How do you make Lady Gaga cry? Poker face. 
+## Why is no one friends with Dracula? Because he's a pain in the neck.
