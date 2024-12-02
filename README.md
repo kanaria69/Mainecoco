@@ -1,1 +1,1 @@
-## I was wondering why the frisbee was getting bigger, then it hit me.
+## What has ears but cannot hear? A field of corn.
