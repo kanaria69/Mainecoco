@@ -1,1 +1,1 @@
-## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
+## I was wondering why the frisbee was getting bigger, then it hit me.
