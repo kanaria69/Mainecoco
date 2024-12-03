@@ -1,1 +1,1 @@
-## To the guy who invented zero... thanks for nothing.
+## How does the moon cut his hair? Eclipse it.
