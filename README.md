@@ -1,1 +1,1 @@
-## How does the moon cut his hair? Eclipse it.
+## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
