@@ -1,1 +1,1 @@
-## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
+## Have you heard about corduroy pillows?  They're making headlines!
