@@ -1,1 +1,1 @@
-## What do bees do after they are married? They go on a honeymoon.
+## How come the stadium got hot after the game? Because all of the fans left.
