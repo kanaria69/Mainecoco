@@ -1,1 +1,1 @@
-## What do you call a magician who has lost their magic? Ian.
+## Why is the new Kindle screen textured to look like paper? So you feel write at home.
