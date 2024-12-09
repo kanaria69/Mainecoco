@@ -1,1 +1,1 @@
-## A doll was recently found dead in a rice paddy. It's the only known instance of a nick nack paddy wack.
+## Today a girl said she recognized me from vegetarian club, but I’m sure I’ve never met herbivore.
