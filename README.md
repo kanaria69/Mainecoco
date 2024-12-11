@@ -1,1 +1,1 @@
-## I thought about going on an all-almond diet. But that's just nuts.
+## I bought shoes from a drug dealer once. I don't know what he laced them with, but I was tripping all day.
