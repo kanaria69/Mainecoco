@@ -1,1 +1,1 @@
-## I was thinking about moving to Moscow but there is no point Russian into things.
+## I thought about going on an all-almond diet. But that's just nuts.
