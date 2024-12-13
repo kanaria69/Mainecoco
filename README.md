@@ -1,1 +1,1 @@
-## What did the ocean say to the beach? Thanks for all the sediment.
+## Why did the girl smear peanut butter on the road? To go with the traffic jam.
