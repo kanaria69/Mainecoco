@@ -1,1 +1,1 @@
-## Why did the girl smear peanut butter on the road? To go with the traffic jam.
+## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
