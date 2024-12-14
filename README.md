@@ -1,1 +1,1 @@
-## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
+## I got fired from a florist, apparently I took too many leaves.
