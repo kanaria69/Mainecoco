@@ -1,1 +1,1 @@
-## What time did the man go to the dentist? Tooth hurt-y.
+## How come the stadium got hot after the game? Because all of the fans left.
