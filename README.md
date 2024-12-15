@@ -1,1 +1,1 @@
-## Why did the clown have neck pain? - Because he slept funny
+## What lies at the bottom of the ocean and twitches? A nervous wreck.
