@@ -1,1 +1,1 @@
-## A magician was driving down the street and then he turned into a driveway.
+## I thought about going on an all-almond diet. But that's just nuts.
