@@ -1,1 +1,1 @@
-## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
+## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
