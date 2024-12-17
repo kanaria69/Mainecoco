@@ -1,1 +1,1 @@
-## I thought about going on an all-almond diet. But that's just nuts.
+## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
