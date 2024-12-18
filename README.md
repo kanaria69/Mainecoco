@@ -1,1 +1,1 @@
-## What happens to a frog's car when it breaks down? It gets toad.
+## A police officer caught two kids playing with a firework and a car battery. He charged one and let the other one off.
