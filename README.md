@@ -1,1 +1,1 @@
-## When does a joke become a dad joke? When it becomes apparent.
+## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
