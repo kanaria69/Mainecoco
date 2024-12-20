@@ -1,1 +1,1 @@
-## What's brown and sticky? A stick.
+## Why did the kid throw the clock out the window? He wanted to see time fly!
