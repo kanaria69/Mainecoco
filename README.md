@@ -1,1 +1,1 @@
-## Did you hear about the cheese who saved the world? It was Legend-dairy!
+## I asked my date to go to the gym the other day. They never showed up. That's when I knew we wouldn't work out.
