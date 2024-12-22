@@ -1,1 +1,1 @@
-## Why can't eggs have love? They will break up too soon.
+## How can you tell a vampire has a cold? They start coffin.
