@@ -1,1 +1,1 @@
-## An apple a day keeps the bullies away. If you throw it hard enough.
+## I was shocked when I was diagnosed as colorblind... It came out of the purple.
