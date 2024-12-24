@@ -1,1 +1,1 @@
-## Writing with a broken pencil is pointless.
+## Why can't you use "Beef stew" as a password? Because it's not stroganoff.
