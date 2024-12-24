@@ -1,1 +1,1 @@
-## Why can't you use "Beef stew" as a password? Because it's not stroganoff.
+## I got an A on my origami assignment when I turned my paper into my teacher
