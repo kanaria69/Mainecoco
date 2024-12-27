@@ -1,1 +1,1 @@
-## What do you call a duck that gets all A's? A wise quacker.
+## What did Romans use to cut pizza before the rolling cutter was invented? Lil Caesars
