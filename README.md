@@ -1,1 +1,1 @@
-## I’m reading a book on the history of glue – can’t put it down.
+## The best time on a clock is 6:30--hands down.
