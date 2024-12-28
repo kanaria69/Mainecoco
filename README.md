@@ -1,1 +1,1 @@
-## I gave all my dead batteries away today, free of charge.
+## I knew a guy who collected candy canes, they were all in mint condition
