@@ -1,1 +1,1 @@
-## I had a pair of racing snails. I removed their shells to make them more aerodynamic, but they became sluggish.
+## A boy dug three holes in the yard. When his mother saw, she exclaimed: "well, well, well"
