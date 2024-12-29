@@ -1,1 +1,2 @@
-## A boy dug three holes in the yard. When his mother saw, she exclaimed: "well, well, well"
+## Why don't you find hippopotamuses hiding in trees?
+## They're really good at it.
