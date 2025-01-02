@@ -1,1 +1,1 @@
-## Where do young cows eat lunch? In the calf-ateria.
+## If two vegans are having an argument, is it still considered beef?
