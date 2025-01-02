@@ -1,1 +1,1 @@
-## It was raining cats and dogs the other day. I almost stepped in a poodle.
+## Where do young cows eat lunch? In the calf-ateria.
