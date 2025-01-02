@@ -1,1 +1,1 @@
-## If two vegans are having an argument, is it still considered beef?
+## Why did the man run around his bed? Because he was trying to catch up on his sleep!
