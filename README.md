@@ -1,1 +1,1 @@
-## Why is there always a gate around cemeteries? Because people are always dying to get in.
+## My first time using an elevator was an uplifting experience. The second time let me down.
