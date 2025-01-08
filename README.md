@@ -1,1 +1,1 @@
-## What do you call an eagle who can play the piano? Talonted!
+## I’ll tell you something about German sausages, they’re the wurst
