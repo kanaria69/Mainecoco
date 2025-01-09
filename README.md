@@ -1,1 +1,1 @@
-## My dentist is the best, he even has a little plaque!
+## Why are mummys scared of vacation? They're afraid to unwind.
