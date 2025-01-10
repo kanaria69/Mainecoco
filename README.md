@@ -1,1 +1,1 @@
-## Why are mummys scared of vacation? They're afraid to unwind.
+## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
