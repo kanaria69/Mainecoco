@@ -1,1 +1,1 @@
-## If two vegans are having an argument, is it still considered beef?
+## What is a witch's favorite subject in school? Spelling!
