@@ -1,1 +1,2 @@
-## The urge to sing the Lion King song is just a whim away.
+## What did the hat say to the scarf?
+## You can hang around. I'll just go on ahead.
