@@ -1,1 +1,1 @@
-## What do you call a cow with two legs? Lean beef.
+## Why do cows wear bells? Because their horns don't work.
