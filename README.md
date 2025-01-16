@@ -1,1 +1,1 @@
-## This is my step ladder. I never knew my real ladder.
+## Nurse: Doctor, there's a patient that says he's invisible. Doctor: Well, tell him I can't see him right now!
