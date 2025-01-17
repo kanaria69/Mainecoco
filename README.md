@@ -1,1 +1,1 @@
-## What did the doctor say to the gingerbread man who broke his leg? Try icing it.
+## I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
