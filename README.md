@@ -1,1 +1,2 @@
-## How do you tell the difference between a crocodile and an alligator? You will see one later and one in a while.
+## Some people say that I never got over my obsession with Phil Collins.
+## But take a look at me now.
