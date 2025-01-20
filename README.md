@@ -1,1 +1,1 @@
-## Why can't eggs have love? They will break up too soon.
+## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
