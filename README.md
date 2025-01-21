@@ -1,1 +1,1 @@
-## What does a pirate pay for his corn? A buccaneer!
+## What do you call a cow with no legs? Ground beef.
