@@ -1,1 +1,1 @@
-## What do you call two guys hanging out by your window? Kurt & Rod.
+## I got a reversible jacket for Christmas, I can't wait to see how it turns out.
