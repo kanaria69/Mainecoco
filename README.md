@@ -1,1 +1,1 @@
-## I just got fired from a florist, apparently I took too many leaves.
+## Where do you take someone who’s been injured in a peek-a-boo accident? To the I.C.U.
