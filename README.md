@@ -1,1 +1,2 @@
-## I knew i shouldn’t have ate that seafood. Because now i’m feeling a little… Eel
+## Some people say that I never got over my obsession with Phil Collins.
+## But take a look at me now.
