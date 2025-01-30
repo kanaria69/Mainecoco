@@ -1,1 +1,1 @@
-## What do you call a fashionable lawn statue with an excellent sense of rhythmn? A metro-gnome
+## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
