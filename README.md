@@ -1,1 +1,1 @@
-## Why was it called the dark ages? Because of all the knights. 
+## Why do we tell actors to “break a leg?” Because every play has a cast.
