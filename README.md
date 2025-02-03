@@ -1,1 +1,1 @@
-## I ordered a chicken and an egg from Amazon. I'll let you know.
+## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
