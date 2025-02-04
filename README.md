@@ -1,1 +1,1 @@
-## What do you call a criminal going down the stairs? Condescending
+## Where did Captain Hook get his hook? From a second hand store.
