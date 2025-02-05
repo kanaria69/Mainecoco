@@ -1,1 +1,1 @@
-## Where did Captain Hook get his hook? From a second hand store.
+## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
