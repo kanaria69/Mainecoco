@@ -1,1 +1,1 @@
-## What did the traffic light say to the car as it passed? "Don't look I'm changing!"
+## What do you get if you put a duck in a cement mixer? Quacks in the pavement.
