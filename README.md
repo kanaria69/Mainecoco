@@ -1,1 +1,1 @@
-## What's a ninja's favorite type of shoes? Sneakers!
+## What did the big flower say to the littler flower? Hi, bud!
