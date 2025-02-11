@@ -1,2 +1,2 @@
-## What did the green grape say to the purple grape?
-## BREATH!!
+## Some people say that I never got over my obsession with Phil Collins.
+## But take a look at me now.
