@@ -1,1 +1,1 @@
-## I ordered a chicken and an egg from Amazon. I'll let you know.
+## Why did Sweden start painting barcodes on the sides of their battleships? So they could Scandinavian.
