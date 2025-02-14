@@ -1,1 +1,1 @@
-## Why do cows wear bells? Because their horns don't work.
+## Why are fish easy to weigh? Because they have their own scales.
