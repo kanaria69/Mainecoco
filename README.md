@@ -1,1 +1,1 @@
-## Camping is intense.
+## What did the fish say when it swam into a wall? Damn!
