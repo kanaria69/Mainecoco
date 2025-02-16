@@ -1,1 +1,1 @@
-## People are making apocalypse jokes like there’s no tomorrow.
+## Why does Superman get invited to dinners? Because he is a Supperhero.
