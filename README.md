@@ -1,1 +1,1 @@
-## Why do mathematicians hate the U.S.? Because it's indivisible.
+## What do you call a duck that gets all A's? A wise quacker.
