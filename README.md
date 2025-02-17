@@ -1,1 +1,1 @@
-## What did the scarf say to the hat? You go on ahead, I am going to hang around a bit longer.
+## I'm tired of following my dreams. I'm just going to ask them where they are going and meet up with them later.
