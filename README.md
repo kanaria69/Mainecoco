@@ -1,1 +1,1 @@
-## Why did the barber win the race? He took a short cut.
+## Why is the new Kindle screen textured to look like paper? So you feel write at home.
