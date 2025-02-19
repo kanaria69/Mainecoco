@@ -1,1 +1,1 @@
-## What did one nut say as he chased another nut?  I'm a cashew!
+## Why is there always a gate around cemeteries? Because people are always dying to get in.
