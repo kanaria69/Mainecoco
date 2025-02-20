@@ -1,1 +1,1 @@
-## I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
+## Why did the knife dress up in a suit? Because it wanted to look sharp
