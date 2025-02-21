@@ -1,1 +1,1 @@
-## Dermatologists are always in a hurry. They spend all day making rash decisions. 
+## My boss told me that he was going to fire the person with the worst posture. I have a hunch, it might be me.
