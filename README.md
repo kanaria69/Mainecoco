@@ -1,1 +1,1 @@
-## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
+## I wish I could clean mirrors for a living. It's just something I can see myself doing.
