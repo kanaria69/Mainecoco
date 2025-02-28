@@ -1,1 +1,1 @@
-## I've just written a song about a tortilla. Well, it is more of a rap really.
+## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
