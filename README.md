@@ -1,1 +1,1 @@
-## Why did Dracula lie in the wrong coffin? He made a grave mistake.
+## Why did the worker get fired from the orange juice factory? Lack of concentration.
