@@ -1,1 +1,1 @@
-## Why do trees seem suspicious on sunny days? Dunno, they're just a bit shady.
+## Why did Dracula lie in the wrong coffin? He made a grave mistake.
