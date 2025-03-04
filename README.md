@@ -1,1 +1,1 @@
-## Why did Dracula lie in the wrong coffin? He made a grave mistake.
+## I can't take my dog to the pond anymore because the ducks keep attacking him. That's what I get for buying a pure bread dog.
