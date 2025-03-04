@@ -1,1 +1,1 @@
-## Camping is intense.
+## What has ears but cannot hear? A field of corn.
