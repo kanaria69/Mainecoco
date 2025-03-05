@@ -1,1 +1,2 @@
-## What has ears but cannot hear? A field of corn.
+## Cosmetic surgery used to be such a taboo subject.
+## Now you can talk about Botox and nobody raises an eyebrow.
