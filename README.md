@@ -1,1 +1,1 @@
-## Why did the clown have neck pain? - Because he slept funny
+## Why didn’t the orange win the race? It ran out of juice.
