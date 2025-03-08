@@ -1,1 +1,1 @@
-## What do you call a pig that knows karate? A pork chop!
+## What do computers and air conditioners have in common? They both become useless when you open windows.
