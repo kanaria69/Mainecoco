@@ -1,1 +1,1 @@
-## What did one snowman say to the other snow man? Do you smell carrot?
+## Did you hear about the scientist who was lab partners with a pot of boiling water? He had a very esteemed colleague.
