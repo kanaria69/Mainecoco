@@ -1,1 +1,1 @@
-## What concert costs only 45 cents? 50 cent featuring Nickelback.
+## What’s the advantage of living in Switzerland? Well, the flag is a big plus.
