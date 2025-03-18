@@ -1,1 +1,2 @@
-## I used to hate facial hair, but then it grew on me.
+## Q: What did the spaghetti say to the other spaghetti?
+## A: Pasta la vista, baby!
