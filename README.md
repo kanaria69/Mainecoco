@@ -1,1 +1,1 @@
-## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
+## A doll was recently found dead in a rice paddy. It's the only known instance of a nick nack paddy wack.
