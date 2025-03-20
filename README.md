@@ -1,1 +1,1 @@
-## Two guys walked into a bar, the third one ducked.
+## Why did the melons plan a big wedding? Because they cantaloupe!
