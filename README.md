@@ -1,1 +1,1 @@
-## Why are snake races so exciting? They're always neck and neck.
+## Astronomers got tired watching the moon go around the earth for 24 hours. They decided to call it a day.
