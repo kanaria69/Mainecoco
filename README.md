@@ -1,1 +1,1 @@
-## Where do owls go to buy their baby clothes? The owlet malls.
+## Why do cows wear bells? Because their horns don't work.
