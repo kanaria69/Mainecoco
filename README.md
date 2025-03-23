@@ -1,1 +1,1 @@
-## So, I heard this pun about cows, but it’s kinda offensive so I won’t say it. I don’t want there to be any beef between us. 
+## I knew i shouldn’t have ate that seafood. Because now i’m feeling a little… Eel
