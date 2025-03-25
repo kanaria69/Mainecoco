@@ -1,1 +1,1 @@
-## People who don't eat gluten are really going against the grain.
+## The other day I was listening to a song about superglue, it’s been stuck in my head ever since.
