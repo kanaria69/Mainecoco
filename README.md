@@ -1,1 +1,1 @@
-## What kind of bagel can fly? A plain bagel.
+## I just read a book about Stockholm syndrome. It was pretty bad at first, but by the end I liked it.
