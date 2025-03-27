@@ -1,1 +1,1 @@
-## Did you hear the news? FedEx and UPS are merging. They’re going to go by the name Fed-Up from now on.
+## I just read a book about Stockholm syndrome. It was pretty bad at first, but by the end I liked it.
