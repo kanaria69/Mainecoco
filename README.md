@@ -1,1 +1,1 @@
-## Conjunctivitis.com – now that’s a site for sore eyes.
+## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
