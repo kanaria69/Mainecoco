@@ -1,1 +1,1 @@
-## What do you call a group of disorganized cats? A cat-tastrophe.
+## How do you find Will Smith in the snow?  Look for fresh prints.
