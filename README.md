@@ -1,1 +1,1 @@
-## What did the traffic light say to the car as it passed? "Don't look I'm changing!"
+## How come the stadium got hot after the game? Because all of the fans left.
