@@ -1,1 +1,1 @@
-## Someone broke into my house last night and stole my limbo trophy. How low can you go?
+## What did the digital clock say to the grandfather clock? Look, no hands!
