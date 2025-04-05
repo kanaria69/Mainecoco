@@ -1,1 +1,1 @@
-## What do computers and air conditioners have in common? They both become useless when you open windows.
+## I'd like to start a diet, but I've got too much on my plate right now.
