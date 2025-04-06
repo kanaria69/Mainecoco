@@ -1,1 +1,1 @@
-## How do hens stay fit? They always egg-cercise!
+## A man tried to sell me a coffin today. I told him that's the last thing I need.
