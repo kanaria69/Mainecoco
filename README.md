@@ -1,1 +1,1 @@
-## What do you call a boomerang that won't come back? A stick.
+## I don't trust stairs. They're always up to something.
