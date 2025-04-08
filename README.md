@@ -1,1 +1,1 @@
-## I don't trust stairs. They're always up to something.
+## Never take advice from electrons. They are always negative.
