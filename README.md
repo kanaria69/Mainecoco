@@ -1,1 +1,1 @@
-## What do you get when you cross a chicken with a skunk? A fowl smell!
+## Some people eat light bulbs. They say it's a nice light snack.
