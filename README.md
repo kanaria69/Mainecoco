@@ -1,1 +1,1 @@
-## Why did the scarecrow win an award? Because he was outstanding in his field.
+## An apple a day keeps the bullies away. If you throw it hard enough.
