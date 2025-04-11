@@ -1,1 +1,1 @@
-## What did the 0 say to the 8? Nice belt.
+## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
