@@ -1,1 +1,1 @@
-## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
+## What’s E.T. short for? He’s only got little legs.
