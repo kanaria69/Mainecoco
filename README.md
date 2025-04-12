@@ -1,1 +1,1 @@
-## How come the stadium got hot after the game? Because all of the fans left.
+## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
