@@ -1,1 +1,1 @@
-## If two vegans are having an argument, is it still considered beef?
+## What is the hardest part about sky diving? The ground.
