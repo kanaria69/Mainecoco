@@ -1,1 +1,1 @@
-## Why did the barber win the race? He took a short cut.
+## Recent survey revealed 6 out of 7 dwarf's aren't happy.
