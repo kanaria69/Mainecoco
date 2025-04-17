@@ -1,1 +1,1 @@
-## Where do you learn to make banana splits? At sundae school.
+## My cat was just sick on the carpet, I don’t think it’s feline well.
