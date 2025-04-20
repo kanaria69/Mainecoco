@@ -1,1 +1,1 @@
-## I bought shoes from a drug dealer once. I don't know what he laced them with, but I was tripping all day.
+## I used to have a job at a calendar factory but I got the sack because I took a couple of days off.
