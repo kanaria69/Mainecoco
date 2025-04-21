@@ -1,1 +1,1 @@
-## A man is washing the car with his son. The son asks...... "Dad, can’t you just use a sponge?"
+## Chances are if you' ve seen one shopping center, you've seen a mall.
