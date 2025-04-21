@@ -1,1 +1,1 @@
-## Chances are if you' ve seen one shopping center, you've seen a mall.
+## I couldn't get a reservation at the library. They were completely booked.
