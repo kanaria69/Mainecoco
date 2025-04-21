@@ -1,1 +1,1 @@
-## Want to hear a chimney joke? Got stacks of em! First one's on the house
+## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
