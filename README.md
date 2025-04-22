@@ -1,1 +1,1 @@
-## Why are fish so smart? Because they live in schools!
+## Don't trust atoms. They make up everything.
