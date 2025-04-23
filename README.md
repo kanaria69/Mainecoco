@@ -1,1 +1,1 @@
-## How do you find Will Smith in the snow?  Look for fresh prints.
+## What did one wall say to the other wall? I'll meet you at the corner!
