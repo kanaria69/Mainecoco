@@ -1,1 +1,1 @@
-## What concert costs only 45 cents? 50 cent featuring Nickelback.
+## How do you steal a coat? You jacket.
