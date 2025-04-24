@@ -1,1 +1,1 @@
-## I wouldn't buy anything with velcro. It's a total rip-off.
+## Why did the feline fail the lie detector test? Because he be lion.
