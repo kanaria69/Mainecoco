@@ -1,1 +1,1 @@
-## Today a girl said she recognized me from vegetarian club, but I’m sure I’ve never met herbivore.
+## So a duck walks into a pharmacy and says “Give me some chap-stick… and put it on my bill”
