@@ -1,1 +1,1 @@
-## Why are snake races so exciting? They're always neck and neck.
+## Me and my mates are in a band called Duvet. We're a cover band.
