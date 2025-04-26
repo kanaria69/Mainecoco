@@ -1,1 +1,1 @@
-## What’s E.T. short for? He’s only got little legs.
+## Egyptians claimed to invent the guitar, but they were such lyres.﻿
