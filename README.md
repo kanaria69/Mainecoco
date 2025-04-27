@@ -1,1 +1,1 @@
-## Why is there always a gate around cemeteries? Because people are always dying to get in.
+## A farmer had 297 cows, when he rounded them up, he found he had 300
