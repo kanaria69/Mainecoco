@@ -1,1 +1,1 @@
-## Recent survey revealed 6 out of 7 dwarf's aren't happy.
+## Why is there always a gate around cemeteries? Because people are always dying to get in.
