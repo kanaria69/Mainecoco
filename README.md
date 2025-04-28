@@ -1,1 +1,1 @@
-## What kind of pants do ghosts wear? Boo jeans.
+## Why do crabs never give to charity? Because they’re shellfish.
