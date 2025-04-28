@@ -1,1 +1,1 @@
-## What has three letters and starts with gas? A Car.
+## Ever wondered why bees hum? It's because they don't know the words.
