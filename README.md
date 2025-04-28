@@ -1,1 +1,1 @@
-## I wanted to be a tailor but I didn't suit the job
+## What kind of pants do ghosts wear? Boo jeans.
