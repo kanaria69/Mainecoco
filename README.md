@@ -1,1 +1,1 @@
-## Ever wondered why bees hum? It's because they don't know the words.
+## Did you hear about the bread factory burning down? They say the business is toast.
