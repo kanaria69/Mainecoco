@@ -1,1 +1,1 @@
-## The best time on a clock is 6:30--hands down.
+## I got a reversible jacket for Christmas, I can't wait to see how it turns out.
