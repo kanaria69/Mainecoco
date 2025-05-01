@@ -1,1 +1,1 @@
-## Did you hear about the scientist who was lab partners with a pot of boiling water? He had a very esteemed colleague.
+## A beekeeper was indicted after he confessed to years of stealing at work. They charged him with emBEEzlement
