@@ -1,1 +1,1 @@
-## Whiteboards ... are remarkable.
+## I tried to write a chemistry joke, but could never get a reaction.
