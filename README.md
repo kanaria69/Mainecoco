@@ -1,1 +1,1 @@
-## How do you make a 'one' disappear? You add a 'g' and it's 'gone'
+## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
