@@ -1,1 +1,1 @@
-## A man is washing the car with his son. The son asks...... "Dad, can’t you just use a sponge?"
+## In my career as a lumberjack I cut down exactly 52,487 trees. I know because I kept a log.
