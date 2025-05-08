@@ -1,1 +1,1 @@
-## Why is the ocean always blue? Because the shore never waves back.
+## What's the best thing about elevator jokes? They work on so many levels.
