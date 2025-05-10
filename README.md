@@ -1,1 +1,1 @@
-## How do the trees get on the internet? They log on.
+## Why do you never see elephants hiding in trees? Because they're so good at it.
