@@ -1,1 +1,1 @@
-## What do you call a dad that has fallen through the ice? A Popsicle.
+## Wife told me to take the spider out instead of killing it... We had some drinks, cool guy, wants to be a web developer.
