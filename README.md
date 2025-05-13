@@ -1,1 +1,1 @@
-## A horse walks into a bar. The bar tender says "Hey." The horse says "Sure."
+## Me and my mates are in a band called Duvet. We're a cover band.
