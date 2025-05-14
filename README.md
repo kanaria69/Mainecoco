@@ -1,1 +1,1 @@
-## Ever wondered why bees hum? It's because they don't know the words.
+## I’ll tell you something about German sausages, they’re the wurst
