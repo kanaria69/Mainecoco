@@ -1,1 +1,1 @@
-## I’ll tell you something about German sausages, they’re the wurst
+## A butcher accidentally backed into his meat grinder and got a little behind in his work that day.
