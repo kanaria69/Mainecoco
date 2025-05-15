@@ -1,1 +1,1 @@
-## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
+## What did the Buffalo say to his little boy when he dropped him off at school? Bison.
