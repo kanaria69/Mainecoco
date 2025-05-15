@@ -1,1 +1,1 @@
-## Where do young cows eat lunch? In the calf-ateria.
+## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
