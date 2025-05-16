@@ -1,1 +1,1 @@
-## What kind of award did the dentist receive? A little plaque.
+## What's orange and sounds like a parrot? A Carrot.
