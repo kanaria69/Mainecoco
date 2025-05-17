@@ -1,1 +1,1 @@
-## Where does batman go to the bathroom? The batroom.
+## Why do bears have hairy coats? Fur protection.
