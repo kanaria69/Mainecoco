@@ -1,1 +1,1 @@
-## What's the worst thing about ancient history class? The teachers tend to Babylon.
+## Why do you never see elephants hiding in trees? Because they're so good at it.
