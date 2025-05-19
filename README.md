@@ -1,1 +1,1 @@
-## The urge to sing the Lion King song is just a whim away.
+## What's the worst thing about ancient history class? The teachers tend to Babylon.
