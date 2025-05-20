@@ -1,1 +1,1 @@
-## Why do you never see elephants hiding in trees? Because they're so good at it.
+## My new thesaurus is terrible. In fact, it's so bad, I'd say it's terrible.
