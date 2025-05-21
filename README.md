@@ -1,1 +1,1 @@
-## Why can't a bicycle stand on its own? It's two-tired.
+## What did one plate say to the other plate? Dinner is on me!
