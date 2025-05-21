@@ -1,1 +1,2 @@
-## I used to work for a soft drink can crusher. It was soda pressing.
+## What is red and smells like blue paint?
+## Red paint!
