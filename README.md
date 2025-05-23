@@ -1,1 +1,1 @@
-## Just read a few facts about frogs. They were ribbiting.
+## Why are skeletons so calm? Because nothing gets under their skin.
