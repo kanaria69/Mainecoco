@@ -1,1 +1,1 @@
-## Why are skeletons so calm? Because nothing gets under their skin.
+## I had a pair of racing snails. I removed their shells to make them more aerodynamic, but they became sluggish.
