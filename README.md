@@ -1,2 +1,1 @@
-## What is the best way to carve?
-## Whittle by whittle.
+## Want to hear a joke about construction? Nah, I'm still working on it.
