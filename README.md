@@ -1,1 +1,1 @@
-## Want to hear a joke about construction? Nah, I'm still working on it.
+## Why couldn't the kid see the pirate movie? Because it was rated arrr!
