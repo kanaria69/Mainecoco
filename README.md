@@ -1,1 +1,1 @@
-## What did the ocean say to the beach? Thanks for all the sediment.
+## Don't tell secrets in corn fields. Too many ears around.
