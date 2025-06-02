@@ -1,1 +1,1 @@
-## There’s a new type of broom out, it’s sweeping the nation.
+## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
