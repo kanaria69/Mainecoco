@@ -1,1 +1,1 @@
-## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
+## Why did the scarecrow win an award? Because he was outstanding in his field.
