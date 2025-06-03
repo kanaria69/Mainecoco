@@ -1,1 +1,2 @@
-## What do you call a troublesome Canadian high schooler? A poutine.
+## What is red and smells like blue paint?
+## Red paint!
