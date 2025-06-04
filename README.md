@@ -1,1 +1,1 @@
-## What's red and bad for your teeth? A Brick.
+## Where did Captain Hook get his hook? From a second hand store.
