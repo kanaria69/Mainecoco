@@ -1,1 +1,1 @@
-## What do you call a droid that takes the long way around? R2 detour.
+## Why did the man put his money in the freezer? He wanted cold hard cash!
