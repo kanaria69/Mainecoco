@@ -1,1 +1,1 @@
-## Why did the man put his money in the freezer? He wanted cold hard cash!
+## What’s the advantage of living in Switzerland? Well, the flag is a big plus.
