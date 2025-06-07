@@ -1,1 +1,1 @@
-## What did the fish say when it swam into a wall? Damn!
+## Why did the feline fail the lie detector test? Because he be lion.
