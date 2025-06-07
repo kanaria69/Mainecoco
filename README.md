@@ -1,1 +1,1 @@
-## Why did the feline fail the lie detector test? Because he be lion.
+## Did you hear about the guy whose whole left side was cut off? He's all right now.
