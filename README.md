@@ -1,1 +1,1 @@
-## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
+## A man tried to sell me a coffin today. I told him that's the last thing I need.
