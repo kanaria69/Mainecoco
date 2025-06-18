@@ -1,1 +1,3 @@
-## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
+## Never Trust Someone With Graph Paper...
+## 
+## They're always plotting something.
