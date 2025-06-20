@@ -1,1 +1,1 @@
-## What did celery say when he broke up with his girlfriend? She wasn't right for me, so I really don't carrot all.
+## Why did Sweden start painting barcodes on the sides of their battleships? So they could Scandinavian.
