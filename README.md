@@ -1,1 +1,1 @@
-## I have kleptomania, but when it gets bad, I take something for it.
+## What did celery say when he broke up with his girlfriend? She wasn't right for me, so I really don't carrot all.
