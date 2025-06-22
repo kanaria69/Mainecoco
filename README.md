@@ -1,1 +1,1 @@
-## I just got fired from a florist, apparently I took too many leaves.
+## What did the father tomato say to the baby tomato whilst on a family walk? Ketchup.
