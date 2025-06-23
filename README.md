@@ -1,1 +1,1 @@
-## Did you hear about the cheese who saved the world? It was Legend-dairy!
+## I knew a guy who collected candy canes, they were all in mint condition
