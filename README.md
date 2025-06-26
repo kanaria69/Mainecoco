@@ -1,1 +1,1 @@
-## Doctor you've got to help me, I'm addicted to Twitter. Doctor: I don't follow you.
+## A woman is on trial for beating her husband to death with his guitar collection. Judge says, ‘First offender?’ She says, ‘No, first a Gibson! Then a Fender!’
