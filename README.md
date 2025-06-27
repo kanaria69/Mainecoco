@@ -1,2 +1,1 @@
-## What is red and smells like blue paint?
-## Red paint!
+## I wish I could clean mirrors for a living. It's just something I can see myself doing.
