@@ -1,1 +1,1 @@
-## Two peanuts were walking down the street. One was a salted
+## People are making apocalypse jokes like there’s no tomorrow.
