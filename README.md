@@ -1,1 +1,1 @@
-## People are making apocalypse jokes like there’s no tomorrow.
+## There's not really any training for garbagemen. They just pick things up as they go.
