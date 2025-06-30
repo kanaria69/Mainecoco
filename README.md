@@ -1,1 +1,1 @@
-## The first time I got a universal remote control I thought to myself, "This changes everything"
+## When Dad drops a pea off of his plate ‘oh dear I’ve pee’d on the table!
