@@ -1,1 +1,1 @@
-## "Why do seagulls fly over the ocean?" "Because if they flew over the bay, we'd call them bagels."
+## A Sandwich walks into a bar, the bartender says “Sorry, we don’t serve food here”
