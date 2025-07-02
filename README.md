@@ -1,1 +1,2 @@
-## What's the difference between a rooster and a crow? A rooster can crow but a crow cannot rooster.
+## My friend keeps telling me "Cheer up. You aren't stuck in a deep hole in the ground, filled with water."
+## I know he means well.
