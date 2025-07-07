@@ -1,1 +1,1 @@
-## What's blue and not very heavy?  Light blue.
+## Why do bears have hairy coats? Fur protection.
