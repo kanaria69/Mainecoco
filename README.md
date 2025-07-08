@@ -1,1 +1,1 @@
-## Did you know that ghosts call their true love their ghoul-friend?
+## Did you know Albert Einstein was a real person? All this time, I thought he was just a theoretical physicist!
