@@ -1,1 +1,1 @@
-## If a child refuses to sleep during nap time, are they guilty of resisting a rest?
+## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
