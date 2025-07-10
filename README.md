@@ -1,1 +1,1 @@
-## Two guys walked into a bar, the third one ducked.
+## Why can't a bicycle stand on its own? It's two-tired.
