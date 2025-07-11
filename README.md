@@ -1,1 +1,1 @@
-## I used to be addicted to the hokey pokey, but I turned myself around.
+## I don't trust stairs. They're always up to something.
