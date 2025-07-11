@@ -1,1 +1,1 @@
-## Did you hear about the guy who invented Lifesavers? They say he made a mint.
+## Geology rocks, but Geography is where it's at!
