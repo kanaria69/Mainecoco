@@ -1,1 +1,1 @@
-## Why do wizards clean their teeth three times a day? To prevent bat breath!
+## What do you call a bear with no teeth? A gummy bear!
