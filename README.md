@@ -1,1 +1,2 @@
-## Why did the man run around his bed? Because he was trying to catch up on his sleep!
+## My friend keeps telling me "Cheer up. You aren't stuck in a deep hole in the ground, filled with water."
+## I know he means well.
