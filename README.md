@@ -1,1 +1,1 @@
-## Why was the strawberry sad? Its parents were in a jam.
+## Can a kangaroo jump higher than the Empire State Building? Of course. The Empire State Building can't jump.
