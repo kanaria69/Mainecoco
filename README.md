@@ -1,1 +1,1 @@
-## Can a kangaroo jump higher than the Empire State Building? Of course. The Empire State Building can't jump.
+## My friend told me that pepper is the best seasoning for a roast, but I took it with a grain of salt.
