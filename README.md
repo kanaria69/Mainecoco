@@ -1,1 +1,1 @@
-## A man tried to sell me a coffin today. I told him that's the last thing I need.
+## When do doctors get angry? When they run out of patients.
