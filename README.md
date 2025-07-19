@@ -1,1 +1,1 @@
-## When do doctors get angry? When they run out of patients.
+## Why did the worker get fired from the orange juice factory? Lack of concentration.
