@@ -1,1 +1,1 @@
-## How do you make Lady Gaga cry? Poker face. 
+## People are making apocalypse jokes like there’s no tomorrow.
