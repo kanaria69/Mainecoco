@@ -1,1 +1,1 @@
-## How does a French skeleton say hello? Bone-jour.
+## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
