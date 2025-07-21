@@ -1,1 +1,1 @@
-## People are making apocalypse jokes like there’s no tomorrow.
+## How does a French skeleton say hello? Bone-jour.
