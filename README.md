@@ -1,1 +1,1 @@
-## I was wondering why the frisbee was getting bigger, then it hit me.
+## Don't buy flowers at a monastery. Because only you can prevent florist friars.
