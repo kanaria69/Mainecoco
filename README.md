@@ -1,1 +1,1 @@
-## What do you call a fat psychic? A four-chin teller.
+## You can't trust a ladder. It will always let you down
