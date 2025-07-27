@@ -1,1 +1,1 @@
-## What did the sea say to the sand? "We have to stop meeting like this."
+## Why is it a bad idea to iron your four-leaf clover? Cause you shouldn't press your luck.
