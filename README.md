@@ -1,1 +1,1 @@
-## Why are mummys scared of vacation? They're afraid to unwind.
+## Why did the m&m go to school? Because it wanted to be a Smartie!
