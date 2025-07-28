@@ -1,1 +1,1 @@
-## What do you call a troublesome Canadian high schooler? A poutine.
+## I used to be a banker, but I lost interest.
