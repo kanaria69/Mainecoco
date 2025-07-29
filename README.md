@@ -1,1 +1,1 @@
-## R.I.P. boiled water. You will be mist.
+## What do you call a nervous javelin thrower? Shakespeare.
