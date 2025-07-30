@@ -1,3 +1,1 @@
-## Never Trust Someone With Graph Paper...
-## 
-## They're always plotting something.
+## I went to the zoo the other day, there was only one dog in it. It was a shitzu.
