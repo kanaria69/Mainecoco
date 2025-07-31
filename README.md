@@ -1,1 +1,1 @@
-## What did Romans use to cut pizza before the rolling cutter was invented? Lil Caesars
+## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
