@@ -1,1 +1,1 @@
-## When is a door not a door? When it's ajar.
+## Why are graveyards so noisy? Because of all the coffin.
