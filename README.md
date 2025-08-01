@@ -1,1 +1,1 @@
-## What is bread's favorite number?  Leaven.
+## When is a door not a door? When it's ajar.
