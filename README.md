@@ -1,1 +1,1 @@
-## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
+## Today a man knocked on my door and asked for a small donation towards the local swimming pool. I gave him a glass of water.
