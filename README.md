@@ -1,1 +1,1 @@
-## My wife said I was immature. So I told her to get out of my fort.
+## Why do birds fly south for the winter? Because it's too far to walk.
