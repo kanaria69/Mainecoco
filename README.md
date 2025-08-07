@@ -1,1 +1,1 @@
-## Mountains aren't just funny, they are hill areas
+## Dermatologists are always in a hurry. They spend all day making rash decisions. 
