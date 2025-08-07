@@ -1,1 +1,1 @@
-## What do vegetarian zombies eat? Grrrrrainnnnnssss.
+## What do you do when your bunny gets wet? You get your hare dryer.
