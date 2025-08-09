@@ -1,1 +1,2 @@
-## Did you know crocodiles could grow up to 15 feet? But most just have 4.
+## Cosmetic surgery used to be such a taboo subject.
+## Now you can talk about Botox and nobody raises an eyebrow.
