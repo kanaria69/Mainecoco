@@ -1,1 +1,1 @@
-## Why do bananas have to put on sunscreen before they go to the beach? Because they might peel!
+## Did you know crocodiles could grow up to 15 feet? But most just have 4.
