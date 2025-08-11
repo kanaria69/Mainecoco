@@ -1,1 +1,1 @@
-## I just broke my guitar. It's okay, I won't fret
+## I invented a new word! Plagiarism!
