@@ -1,1 +1,1 @@
-## How do hens stay fit? They always egg-cercise!
+## New atoms frequently lose electrons when they fail to keep an ion them.
