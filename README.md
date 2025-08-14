@@ -1,1 +1,2 @@
-## Which side of the chicken has more feathers? The outside.
+## What's the difference between a seal and a sea lion?
+## An ion! 
