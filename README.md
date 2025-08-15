@@ -1,2 +1,2 @@
-## What did the green grape say to the purple grape?
-## BREATH!!
+## What is the best way to carve?
+## Whittle by whittle.
