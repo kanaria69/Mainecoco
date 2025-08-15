@@ -1,1 +1,2 @@
-## Why did the miner get fired from his job? He took it for granite...
+## What did the green grape say to the purple grape?
+## BREATH!!
