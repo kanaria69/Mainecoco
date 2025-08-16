@@ -1,1 +1,1 @@
-## Dermatologists are always in a hurry. They spend all day making rash decisions. 
+## What did Romans use to cut pizza before the rolling cutter was invented? Lil Caesars
