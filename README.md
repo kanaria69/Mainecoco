@@ -1,2 +1,1 @@
-## What is the best way to carve?
-## Whittle by whittle.
+## Why was the robot angry? Because someone kept pressing his buttons!
