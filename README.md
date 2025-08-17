@@ -1,1 +1,1 @@
-## Have you heard about corduroy pillows?  They're making headlines!
+## What did the ocean say to the beach? Thanks for all the sediment.
