@@ -1,1 +1,1 @@
-## What did the ocean say to the beach? Thanks for all the sediment.
+## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
