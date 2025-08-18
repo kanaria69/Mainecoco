@@ -1,2 +1,1 @@
-## What is the least spoken language in the world?
-## Sign Language
+## Why did the opera singer go sailing? They wanted to hit the high Cs.
