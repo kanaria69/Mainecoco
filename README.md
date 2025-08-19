@@ -1,1 +1,1 @@
-## What do you call your friend who stands in a hole? Phil.
+## Why are oranges the smartest fruit? Because they are made to concentrate. 
