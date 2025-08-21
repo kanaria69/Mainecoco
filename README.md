@@ -1,1 +1,1 @@
-## What do you call a cow on a trampoline? A milk shake!
+## How much does a hipster weigh? An instagram.
