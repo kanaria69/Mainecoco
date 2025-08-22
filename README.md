@@ -1,1 +1,1 @@
-## What do you call a snake who builds houses? A boa constructor!
+## I was in an 80's band called the prevention. We were better than the cure.
