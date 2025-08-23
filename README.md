@@ -1,1 +1,1 @@
-## I was in an 80's band called the prevention. We were better than the cure.
+## Where do you take someone who’s been injured in a peek-a-boo accident? To the I.C.U.
