@@ -1,1 +1,1 @@
-## Where do you take someone who’s been injured in a peek-a-boo accident? To the I.C.U.
+## Why don’t seagulls fly over the bay? Because then they’d be bay-gulls!
