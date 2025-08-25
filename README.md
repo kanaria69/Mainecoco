@@ -1,1 +1,1 @@
-## “My Dog has no nose.” “How does he smell?” “Awful”
+## Why did the tree go to the dentist? It needed a root canal.
