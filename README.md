@@ -1,1 +1,1 @@
-## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
+## “My Dog has no nose.” “How does he smell?” “Awful”
