@@ -1,1 +1,1 @@
-## Don't tell secrets in corn fields. Too many ears around.
+## My new thesaurus is terrible. In fact, it's so bad, I'd say it's terrible.
