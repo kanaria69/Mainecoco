@@ -1,1 +1,1 @@
-## Doctor you've got to help me, I'm addicted to Twitter. Doctor: I don't follow you.
+## Dermatologists are always in a hurry. They spend all day making rash decisions. 
