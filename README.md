@@ -1,1 +1,1 @@
-## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
+## Did you know Albert Einstein was a real person? All this time, I thought he was just a theoretical physicist!
