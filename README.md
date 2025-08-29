@@ -1,1 +1,1 @@
-## Why can't eggs have love? They will break up too soon.
+## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
