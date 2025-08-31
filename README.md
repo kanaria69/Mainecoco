@@ -1,1 +1,2 @@
-## Why do pirates not know the alphabet? They always get stuck at "C".
+## Cosmetic surgery used to be such a taboo subject.
+## Now you can talk about Botox and nobody raises an eyebrow.
