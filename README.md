@@ -1,1 +1,1 @@
-## Don't trust atoms. They make up everything.
+## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
