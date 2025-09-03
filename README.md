@@ -1,1 +1,1 @@
-## What do you get when you cross a pig and a pineapple? A porky pine
+## My friend told me that pepper is the best seasoning for a roast, but I took it with a grain of salt.
