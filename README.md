@@ -1,1 +1,1 @@
-## I just wrote a book on reverse psychology. Do not read it!
+## Want to hear my pizza joke? Never mind, it's too cheesy.
