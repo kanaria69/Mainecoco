@@ -1,1 +1,1 @@
-## Want to hear my pizza joke? Never mind, it's too cheesy.
+## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
