@@ -1,1 +1,1 @@
-## How do you make Lady Gaga cry? Poker face. 
+## Why do we tell actors to “break a leg?” Because every play has a cast.
