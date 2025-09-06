@@ -1,1 +1,1 @@
-## Why did the house go to the doctor? It was having window panes.
+## What do you call two guys hanging out by your window? Kurt & Rod.
