@@ -1,1 +1,1 @@
-## Why do we tell actors to “break a leg?” Because every play has a cast.
+## How do you find Will Smith in the snow?  Look for fresh prints.
