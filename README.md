@@ -1,1 +1,1 @@
-## What has three letters and starts with gas? A Car.
+## Why did the house go to the doctor? It was having window panes.
