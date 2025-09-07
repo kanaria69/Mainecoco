@@ -1,1 +1,1 @@
-## What do you call two guys hanging out by your window? Kurt & Rod.
+## My pet mouse 'Elvis' died last night. He was caught in a trap..
