@@ -1,1 +1,1 @@
-## How does a dyslexic poet write? Inverse.
+## If at first you don't succeed, sky diving is not for you!
