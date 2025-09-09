@@ -1,1 +1,1 @@
-## I'm glad I know sign language, it's pretty handy.
+## Whoever invented the knock-knock joke should get a no bell prize.
