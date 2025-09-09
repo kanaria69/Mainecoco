@@ -1,1 +1,1 @@
-## It takes guts to be an organ donor.
+## I'm glad I know sign language, it's pretty handy.
