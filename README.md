@@ -1,1 +1,1 @@
-## How do you teach a kid to climb stairs? There is a step by step guide.
+## I am terrified of elevators. I’m going to start taking steps to avoid them.
