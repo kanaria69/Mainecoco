@@ -1,1 +1,1 @@
-## What did celery say when he broke up with his girlfriend? She wasn't right for me, so I really don't carrot all.
+## Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
