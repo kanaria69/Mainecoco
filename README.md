@@ -1,1 +1,1 @@
-## I've got a joke about vegetables for you... but it's a bit corny.
+## I burned 2000 calories today, I left my food in the oven for too long.
