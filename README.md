@@ -1,1 +1,1 @@
-## I used to be a banker, but I lost interest.
+## Why don't skeletons ride roller coasters? They don't have the stomach for it.
