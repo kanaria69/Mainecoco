@@ -1,1 +1,1 @@
-## Why don't skeletons ride roller coasters? They don't have the stomach for it.
+## Why was it called the dark ages? Because of all the knights. 
