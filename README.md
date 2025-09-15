@@ -1,1 +1,1 @@
-## Why don’t seagulls fly over the bay? Because then they’d be bay-gulls!
+## Did you hear about the guy whose whole left side was cut off? He's all right now.
