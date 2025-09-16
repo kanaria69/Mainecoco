@@ -1,1 +1,1 @@
-## Why are snake races so exciting? They're always neck and neck.
+## What do vegetarian zombies eat? Grrrrrainnnnnssss.
