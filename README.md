@@ -1,1 +1,1 @@
-## Why are fish so smart? Because they live in schools!
+## Why are snake races so exciting? They're always neck and neck.
