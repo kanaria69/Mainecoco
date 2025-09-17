@@ -1,1 +1,1 @@
-## What's brown and sticky? A stick.
+## Yesterday a clown held a door open for me. I thought it was a nice jester.
