@@ -1,1 +1,1 @@
-## I wish I could clean mirrors for a living. It's just something I can see myself doing.
+## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
