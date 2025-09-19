@@ -1,1 +1,1 @@
-## What do you call a girl between two posts? Annette.
+## What is a vampire's favorite fruit? A blood orange.
