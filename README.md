@@ -1,1 +1,1 @@
-## Why do cows wear bells? Because their horns don't work.
+## Geology rocks, but Geography is where it's at!
