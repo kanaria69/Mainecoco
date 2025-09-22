@@ -1,1 +1,1 @@
-## They tried to make a diamond shaped like a duck. It quacked under the pressure.
+## Why was the broom late for the meeting? He overswept.
