@@ -1,1 +1,1 @@
-## What does a pirate pay for his corn? A buccaneer!
+## They tried to make a diamond shaped like a duck. It quacked under the pressure.
