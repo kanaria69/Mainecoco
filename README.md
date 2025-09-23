@@ -1,1 +1,1 @@
-## Did you hear that the police have a warrant out on a midget psychic ripping people off? It reads “Small medium at large.”
+## It's been months since I bought the book "how to scam people online". It still hasn't turned up.
