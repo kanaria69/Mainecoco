@@ -1,1 +1,1 @@
-## What do you call a cow with two legs? Lean beef.
+## Why did the sentence fail the driving test? It never came to a full stop.
