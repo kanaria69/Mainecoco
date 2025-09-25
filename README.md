@@ -1,1 +1,1 @@
-## What do you call a criminal going down the stairs? Condescending
+## What kind of tree fits in your hand? A palm tree!
