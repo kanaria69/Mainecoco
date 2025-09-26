@@ -1,1 +1,1 @@
-## What do you call a duck that gets all A's? A wise quacker.
+## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
