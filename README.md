@@ -1,1 +1,1 @@
-## What do you call someone with no nose? Nobody knows.
+## Why did the coffee file a police report? It got mugged.
