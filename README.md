@@ -1,1 +1,1 @@
-## Why did the coffee file a police report? It got mugged.
+## Why do pirates not know the alphabet? They always get stuck at "C".
