@@ -1,1 +1,1 @@
-## What don't watermelons get married? Because they cantaloupe.
+## I wish I could clean mirrors for a living. It's just something I can see myself doing.
