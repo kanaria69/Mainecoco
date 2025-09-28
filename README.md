@@ -1,1 +1,1 @@
-## What did the late tomato say to the early tomato? I’ll ketch up
+## Did you hear about the new restaurant on the moon? The food is great, but there’s just no atmosphere.
