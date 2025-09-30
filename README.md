@@ -1,1 +1,1 @@
-## How does a scientist freshen their breath? With experi-mints!
+## Did you hear about the two thieves who stole a calendar? They each got six months.
