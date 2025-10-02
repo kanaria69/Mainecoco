@@ -1,1 +1,1 @@
-## What’s E.T. short for? He’s only got little legs.
+## Wife told me to take the spider out instead of killing it... We had some drinks, cool guy, wants to be a web developer.
