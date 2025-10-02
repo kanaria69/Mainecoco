@@ -1,1 +1,1 @@
-## You can't trust a ladder. It will always let you down
+## What’s E.T. short for? He’s only got little legs.
