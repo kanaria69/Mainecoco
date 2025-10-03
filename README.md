@@ -1,1 +1,1 @@
-## Why did the coffee file a police report? It got mugged.
+## When is a door not a door? When it's ajar.
