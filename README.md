@@ -1,1 +1,2 @@
-## What did the beaver say to the tree? It's been nice gnawing you.
+## What is the best way to carve?
+## Whittle by whittle.
