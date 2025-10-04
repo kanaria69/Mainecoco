@@ -1,1 +1,1 @@
-## Two satellites decided to get married. The wedding wasn't much, but the reception was incredible.
+## My dog used to chase people on a bike a lot. It got so bad I had to take his bike away.
