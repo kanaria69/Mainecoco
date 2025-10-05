@@ -1,1 +1,1 @@
-## Someone broke into my house last night and stole my limbo trophy. How low can you go?
+## What did celery say when he broke up with his girlfriend? She wasn't right for me, so I really don't carrot all.
