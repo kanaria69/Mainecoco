@@ -1,1 +1,1 @@
-## If you walk into a forest and cut down a tree, but the tree doesn't understand why you cut it down, do you think it's stumped?
+## How many tickles does it take to tickle an octopus? Ten-tickles!
