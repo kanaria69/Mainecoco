@@ -1,1 +1,1 @@
-## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
+## This furniture store keeps emailing me, all I wanted was one night stand!
