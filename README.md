@@ -1,1 +1,1 @@
-## This furniture store keeps emailing me, all I wanted was one night stand!
+## Got a new suit recently made entirely of living plants. I wasn’t sure at first, but it’s grown on me
