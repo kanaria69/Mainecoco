@@ -1,1 +1,1 @@
-## It's only a murder of crows if there's probable caws.
+## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
