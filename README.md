@@ -1,1 +1,1 @@
-## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
+## So a duck walks into a pharmacy and says “Give me some chap-stick… and put it on my bill”
