@@ -1,1 +1,1 @@
-## What do you get when you cross a chicken with a skunk? A fowl smell!
+## If you think swimming with dolphins is expensive, you should try swimming with sharks--it cost me an arm and a leg!
