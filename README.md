@@ -1,1 +1,1 @@
-## Someone asked me, what's the ninth letter of the alphabet? It was a complete guess, but I was right.
+## Astronomers got tired watching the moon go around the earth for 24 hours. They decided to call it a day.
