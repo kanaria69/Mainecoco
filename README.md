@@ -1,1 +1,1 @@
-## Astronomers got tired watching the moon go around the earth for 24 hours. They decided to call it a day.
+## What's the difference between a guitar and a fish? You can tune a guitar but you can't "tuna" fish!
