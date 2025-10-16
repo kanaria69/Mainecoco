@@ -1,1 +1,1 @@
-## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
+## My friend told me that pepper is the best seasoning for a roast, but I took it with a grain of salt.
