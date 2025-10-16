@@ -1,1 +1,2 @@
-## Why was the strawberry sad? Its parents were in a jam.
+## Hostess: Do you have a preference of where you sit?
+## Dad: Down.
