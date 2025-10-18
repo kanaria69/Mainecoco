@@ -1,1 +1,1 @@
-## What has a bed that you can’t sleep in? A river.
+## Did you hear about the guy whose whole left side was cut off? He's all right now.
