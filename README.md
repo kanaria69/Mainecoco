@@ -1,1 +1,1 @@
-## Why did the banana go to the doctor? He was not "peeling" well.
+## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
