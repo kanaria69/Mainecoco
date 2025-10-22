@@ -1,1 +1,1 @@
-## What's red and bad for your teeth? A Brick.
+## Did you hear about the kidnapping at school? It's ok, he woke up.
