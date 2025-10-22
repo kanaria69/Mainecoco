@@ -1,1 +1,1 @@
-## Sore throats are a pain in the neck!
+## What's red and bad for your teeth? A Brick.
