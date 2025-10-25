@@ -1,1 +1,1 @@
-## What creature is smarter than a talking parrot? A spelling bee.
+## What do you get if you put a duck in a cement mixer? Quacks in the pavement.
