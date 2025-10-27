@@ -1,1 +1,1 @@
-## My sea sickness comes in waves.
+## I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
