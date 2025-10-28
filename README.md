@@ -1,1 +1,1 @@
-## What's red and bad for your teeth? A Brick.
+## Why did the octopus beat the shark in a fight? Because it was well armed.
