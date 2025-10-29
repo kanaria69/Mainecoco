@@ -1,1 +1,1 @@
-## What did the big flower say to the littler flower? Hi, bud!
+## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
