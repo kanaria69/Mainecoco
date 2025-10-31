@@ -1,1 +1,1 @@
-## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
+## Why was the big cat disqualified from the race? Because it was a cheetah.
