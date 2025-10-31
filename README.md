@@ -1,1 +1,1 @@
-## Why was the big cat disqualified from the race? Because it was a cheetah.
+## "Hey, dad, did you get a haircut?" "No, I got them all cut."
