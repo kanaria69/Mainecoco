@@ -1,1 +1,1 @@
-## "Hey, dad, did you get a haircut?" "No, I got them all cut."
+## Parallel lines have so much in common. It’s a shame they’ll never meet.
