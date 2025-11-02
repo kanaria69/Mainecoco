@@ -1,1 +1,1 @@
-## People are making apocalypse jokes like there’s no tomorrow.
+## The other day I was listening to a song about superglue, it’s been stuck in my head ever since.
