@@ -1,1 +1,1 @@
-## There's not really any training for garbagemen. They just pick things up as they go.
+## I been watching a channel on TV that is strictly just about origami — of course it is paper-view.
