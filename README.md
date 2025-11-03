@@ -1,3 +1,1 @@
-## What is the difference between ignorance and apathy?
-## 
-## I don't know and I don't care.
+## There's not really any training for garbagemen. They just pick things up as they go.
