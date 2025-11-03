@@ -1,1 +1,3 @@
-## Why was ten scared of seven? Because seven ate nine.
+## What is the difference between ignorance and apathy?
+## 
+## I don't know and I don't care.
