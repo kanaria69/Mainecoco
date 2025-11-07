@@ -1,1 +1,3 @@
-## Why does Superman get invited to dinners? Because he is a Supperhero.
+## How many seconds are in a year?
+## 12.
+## January 2nd, February 2nd, March 2nd, April 2nd.... etc
