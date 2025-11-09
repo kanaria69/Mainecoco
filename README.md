@@ -1,1 +1,1 @@
-## Where do sheep go to get their hair cut? The baa-baa shop.
+## Why didn’t the skeleton cross the road? Because he had no guts.
