@@ -1,1 +1,1 @@
-## How do you fix a broken pizza? With tomato paste.
+## Why do birds fly south for the winter? Because it's too far to walk.
