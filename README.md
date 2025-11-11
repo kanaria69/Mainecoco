@@ -1,1 +1,1 @@
-## I saw a documentary on TV last night about how they put ships together.  It was rivetting.
+## A man walked in to a bar with some asphalt on his arm. He said “Two beers please, one for me and one for the road.”
