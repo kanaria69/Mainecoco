@@ -1,1 +1,1 @@
-## What's red and bad for your teeth? A Brick.
+## Why did the knife dress up in a suit? Because it wanted to look sharp
