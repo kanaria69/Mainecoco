@@ -1,1 +1,1 @@
-## What does a pirate pay for his corn? A buccaneer!
+## What's red and bad for your teeth? A Brick.
