@@ -1,1 +1,1 @@
-## What kind of magic do cows believe in? MOODOO.
+## How does a French skeleton say hello? Bone-jour.
