@@ -1,1 +1,1 @@
-## What do you call a pig that knows karate? A pork chop!
+## Did you hear the one about the giant pickle?  He was kind of a big dill.
