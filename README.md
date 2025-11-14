@@ -1,1 +1,1 @@
-## Why was it called the dark ages? Because of all the knights. 
+## What's a ninja's favorite type of shoes? Sneakers!
