@@ -1,1 +1,1 @@
-## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
+## Bought a new jacket suit the other day and it burst into flames. Well, it was a blazer
