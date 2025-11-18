@@ -1,1 +1,1 @@
-## What do you call your friend who stands in a hole? Phil.
+## I accidentally drank a bottle of invisible ink. Now I’m in hospital, waiting to be seen.
