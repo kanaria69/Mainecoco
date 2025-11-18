@@ -1,1 +1,1 @@
-## I thought about going on an all-almond diet. But that's just nuts.
+## What do you call your friend who stands in a hole? Phil.
