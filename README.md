@@ -1,1 +1,1 @@
-## A cannibal is someone who is fed up with people.
+## Where do you learn to make banana splits? At sundae school.
