@@ -1,1 +1,1 @@
-## Why can't eggs have love? They will break up too soon.
+## A cannibal is someone who is fed up with people.
