@@ -1,1 +1,1 @@
-## When do doctors get angry? When they run out of patients.
+## What did the judge say to the dentist? Do you swear to pull the tooth, the whole tooth and nothing but the tooth?
