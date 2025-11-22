@@ -1,1 +1,1 @@
-## What did the shy pebble wish for? That she was a little boulder.
+## Where do hamburgers go to dance? The meat-ball.
