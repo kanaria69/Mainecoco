@@ -1,1 +1,1 @@
-## Yesterday I confused the words "jacuzzi" and "yakuza". Now I'm in hot water with the Japanese mafia.
+## Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
