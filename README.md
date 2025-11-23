@@ -1,2 +1,1 @@
-## What is the least spoken language in the world?
-## Sign Language
+## Don't tell secrets in corn fields. Too many ears around.
