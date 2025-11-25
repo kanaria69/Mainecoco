@@ -1,1 +1,1 @@
-## What do you call corn that joins the army? Kernel.
+## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
