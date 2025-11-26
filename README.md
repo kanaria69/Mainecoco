@@ -1,1 +1,1 @@
-## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
+## If you think swimming with dolphins is expensive, you should try swimming with sharks--it cost me an arm and a leg!
