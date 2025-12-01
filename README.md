@@ -1,1 +1,1 @@
-## Two dyslexics walk into a bra.
+## What do birds give out on Halloween? Tweets.
