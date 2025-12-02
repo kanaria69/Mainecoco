@@ -1,1 +1,1 @@
-## Someone asked me to name two structures that hold water. I said "Well dam"
+## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
