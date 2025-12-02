@@ -1,1 +1,1 @@
-## Why do fish live in salt water? Because pepper makes them sneeze!
+## Why do wizards clean their teeth three times a day? To prevent bat breath!
