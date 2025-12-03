@@ -1,1 +1,1 @@
-## If I could name myself after any Egyptian god, I'd be Set.
+## What do you call a duck that gets all A's? A wise quacker.
