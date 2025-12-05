@@ -1,1 +1,1 @@
-## Writing with a broken pencil is pointless.
+## Chances are if you' ve seen one shopping center, you've seen a mall.
