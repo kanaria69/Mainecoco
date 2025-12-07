@@ -1,1 +1,1 @@
-## What does an angry pepper do? It gets jalapeño face.
+## "Dad, I'm hungry." Hello, Hungry. I'm Dad.
