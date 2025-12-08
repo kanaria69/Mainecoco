@@ -1,1 +1,2 @@
-## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
+## What is red and smells like blue paint?
+## Red paint!
