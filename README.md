@@ -1,1 +1,1 @@
-## What did the late tomato say to the early tomato? I’ll ketch up
+## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
