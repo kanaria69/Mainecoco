@@ -1,1 +1,1 @@
-## I used to be addicted to the hokey pokey, but I turned myself around.
+## Why is there always a gate around cemeteries? Because people are always dying to get in.
