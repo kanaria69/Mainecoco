@@ -1,1 +1,1 @@
-## I knew a guy who collected candy canes, they were all in mint condition
+## Did you hear that David lost his ID in prague? Now we just have to call him Dav.
