@@ -1,1 +1,1 @@
-## I was going to learn how to juggle, but I didn't have the balls.
+## Why does Superman get invited to dinners? Because he is a Supperhero.
