@@ -1,1 +1,1 @@
-## What do you get when you cross a pig and a pineapple? A porky pine
+## Why did the belt go to prison? He held up a pair of pants!
