@@ -1,1 +1,1 @@
-## Why is it a bad idea to iron your four-leaf clover? Cause you shouldn't press your luck.
+## What musical instrument is found in the bathroom? A tuba toothpaste.
