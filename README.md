@@ -1,1 +1,1 @@
-## What do you call a fashionable lawn statue with an excellent sense of rhythmn? A metro-gnome
+## Astronomers got tired watching the moon go around the earth for 24 hours. They decided to call it a day.
