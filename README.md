@@ -1,1 +1,1 @@
-## Why was Pavlov's beard so soft?  Because he conditioned it.
+## Where do young cows eat lunch? In the calf-ateria.
