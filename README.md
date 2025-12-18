@@ -1,1 +1,1 @@
-## Why do mathematicians hate the U.S.? Because it's indivisible.
+## How come the stadium got hot after the game? Because all of the fans left.
