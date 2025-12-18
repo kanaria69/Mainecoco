@@ -1,1 +1,1 @@
-## How come the stadium got hot after the game? Because all of the fans left.
+## How many South Americans does it take to change a lightbulb? A Brazilian
