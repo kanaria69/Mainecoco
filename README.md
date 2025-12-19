@@ -1,1 +1,1 @@
-## What do you call cheese by itself? Provolone.
+## What's brown and sticky? A stick.
