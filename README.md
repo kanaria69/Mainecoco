@@ -1,1 +1,1 @@
-## If you walk into a forest and cut down a tree, but the tree doesn't understand why you cut it down, do you think it's stumped?
+## Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
