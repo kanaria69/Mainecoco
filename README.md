@@ -1,1 +1,1 @@
-## Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
+## Have you ever heard of a music group called Cellophane? They mostly wrap.
