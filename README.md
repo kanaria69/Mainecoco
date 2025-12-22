@@ -1,1 +1,1 @@
-## How do you make Lady Gaga cry? Poker face. 
+## I used to hate facial hair, but then it grew on me.
