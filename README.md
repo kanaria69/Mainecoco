@@ -1,1 +1,1 @@
-## How do you make a water bed more bouncy. You use Spring Water
+## A horse walks into a bar. The bar tender says "Hey." The horse says "Sure."
