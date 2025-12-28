@@ -1,1 +1,1 @@
-## Why can't you use "Beef stew" as a password? Because it's not stroganoff.
+## Why did the sentence fail the driving test? It never came to a full stop.
