@@ -1,1 +1,1 @@
-## I’m on a whiskey diet. I’ve lost three days already.
+## Dermatologists are always in a hurry. They spend all day making rash decisions. 
