@@ -1,1 +1,1 @@
-## Thanks for explaining the word "many" to me. It means a lot.
+## Why can't you use "Beef stew" as a password? Because it's not stroganoff.
