@@ -1,1 +1,1 @@
-## I fear for the calendar, its days are numbered.
+## I thought about going on an all-almond diet. But that's just nuts.
