@@ -1,1 +1,1 @@
-## I thought about going on an all-almond diet. But that's just nuts.
+## My dentist is the best, he even has a little plaque!
