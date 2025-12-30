@@ -1,1 +1,1 @@
-## My son is studying to be a surgeon, I just hope he makes the cut.
+## What's the worst thing about ancient history class? The teachers tend to Babylon.
