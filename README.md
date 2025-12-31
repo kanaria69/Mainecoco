@@ -1,1 +1,1 @@
-## What's the worst thing about ancient history class? The teachers tend to Babylon.
+## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
