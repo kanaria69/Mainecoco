@@ -1,1 +1,1 @@
-## I accidentally took my cats meds last night. Don’t ask meow.
+## This morning I was wondering where the sun was, but then it dawned on me.
