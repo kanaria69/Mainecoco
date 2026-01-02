@@ -1,1 +1,1 @@
-## What do you call a bear with no teeth? A gummy bear!
+## I decided to sell my Hoover… well it was just collecting dust.
