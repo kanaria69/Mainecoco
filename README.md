@@ -1,1 +1,1 @@
-## What do you call corn that joins the army? Kernel.
+## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
