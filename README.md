@@ -1,1 +1,1 @@
-## What’s E.T. short for? He’s only got little legs.
+## What do you get if you cross a turkey with a ghost? A poultry-geist!
