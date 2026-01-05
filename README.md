@@ -1,1 +1,1 @@
-## What's red and bad for your teeth? A Brick.
+## What’s E.T. short for? He’s only got little legs.
