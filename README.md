@@ -1,1 +1,1 @@
-## Why did the octopus beat the shark in a fight? Because it was well armed.
+## Why did Dracula lie in the wrong coffin? He made a grave mistake.
