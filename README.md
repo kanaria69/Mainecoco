@@ -1,1 +1,1 @@
-## It doesn't matter how much you push the envelope. It will still be stationary.
+## Why did the half blind man fall in the well? Because he couldn't see that well!
