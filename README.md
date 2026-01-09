@@ -1,1 +1,1 @@
-## Where does astronauts hangout after work? At the spacebar.
+## What's orange and sounds like a parrot? A Carrot.
