@@ -1,1 +1,1 @@
-## Why did the half blind man fall in the well? Because he couldn't see that well!
+## Where does astronauts hangout after work? At the spacebar.
