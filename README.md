@@ -1,1 +1,1 @@
-## Why is the new Kindle screen textured to look like paper? So you feel write at home.
+## I saw my husband trip and fall while carrying a laundry basket full of ironed clothes. I watched it all unfold.
