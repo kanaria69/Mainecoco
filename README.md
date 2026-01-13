@@ -1,1 +1,1 @@
-## What do you call a boomerang that won't come back? A stick.
+## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
