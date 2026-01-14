@@ -1,1 +1,1 @@
-## Why can't eggs have love? They will break up too soon.
+## Two guys walked into a bar, the third one ducked.
