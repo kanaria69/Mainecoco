@@ -1,1 +1,1 @@
-## Whenever the cashier at the grocery store asks my dad if he would like the milk in a bag he replies, ‘No, just leave it in the carton!’
+## If you’re struggling to think of what to get someone for Christmas. Get them a fridge and watch their face light up when they open it.
