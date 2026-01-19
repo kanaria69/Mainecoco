@@ -1,1 +1,1 @@
-## Somebody stole my Microsoft Office and they're going to pay - you have my Word.
+## I considered building the patio by myself. But I didn't have the stones.
