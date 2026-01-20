@@ -1,1 +1,1 @@
-## Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
+## A Sandwich walks into a bar, the bartender says “Sorry, we don’t serve food here”
