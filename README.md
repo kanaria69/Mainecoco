@@ -1,1 +1,1 @@
-## People are shocked to discover I have a police record but I love their greatest hits!
+## What is a vampire's favorite fruit? A blood orange.
