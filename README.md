@@ -1,1 +1,1 @@
-## The Swiss must've been pretty confident in their chances of victory if they included a corkscrew in their army knife.
+## My friend told me that pepper is the best seasoning for a roast, but I took it with a grain of salt.
