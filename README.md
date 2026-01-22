@@ -1,1 +1,1 @@
-## My friend told me that pepper is the best seasoning for a roast, but I took it with a grain of salt.
+## Did you hear about the scientist who was lab partners with a pot of boiling water? He had a very esteemed colleague.
