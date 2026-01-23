@@ -1,1 +1,1 @@
-## What has three letters and starts with gas? A Car.
+## Bought a new jacket suit the other day and it burst into flames. Well, it was a blazer
