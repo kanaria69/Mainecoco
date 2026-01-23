@@ -1,1 +1,1 @@
-## Bought a new jacket suit the other day and it burst into flames. Well, it was a blazer
+## Where do sheep go to get their hair cut? The baa-baa shop.
