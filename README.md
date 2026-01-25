@@ -1,1 +1,1 @@
-## I went to the store to pick up eight cans of sprite... when I got home I realized I'd only picked seven up
+## I wish I could clean mirrors for a living. It's just something I can see myself doing.
