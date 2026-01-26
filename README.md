@@ -1,1 +1,1 @@
-## What do you call a dictionary on drugs? High definition.
+## I don't trust sushi, there's something fishy about it.
