@@ -1,1 +1,1 @@
-## How does a French skeleton say hello? Bone-jour.
+## I was in an 80's band called the prevention. We were better than the cure.
