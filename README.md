@@ -1,1 +1,1 @@
-## Did you hear about the guy whose whole left side was cut off? He's all right now.
+## What did the beaver say to the tree? It's been nice gnawing you.
