@@ -1,1 +1,3 @@
-## Why was the picture sent to prison? It was framed.
+## What was the pumpkin’s favorite sport?
+## 
+## Squash.
