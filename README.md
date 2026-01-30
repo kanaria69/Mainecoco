@@ -1,1 +1,1 @@
-## What is a witch's favorite subject in school? Spelling!
+## Why did the worker get fired from the orange juice factory? Lack of concentration.
