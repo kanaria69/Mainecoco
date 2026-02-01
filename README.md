@@ -1,1 +1,1 @@
-## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
+## I had a rough day, and then somebody went and ripped the front and back pages from my dictionary. It just goes from bad to worse.
