@@ -1,1 +1,1 @@
-## It doesn't matter how much you push the envelope. It will still be stationary.
+## What did the fish say when it swam into a wall? Damn!
