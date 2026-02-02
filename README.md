@@ -1,1 +1,1 @@
-## What kind of pants do ghosts wear? Boo jeans.
+## Why did the tree go to the dentist? It needed a root canal.
