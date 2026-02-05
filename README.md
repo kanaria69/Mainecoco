@@ -1,1 +1,1 @@
-## Why did the tree go to the dentist? It needed a root canal.
+## Did you hear about the cheese who saved the world? It was Legend-dairy!
