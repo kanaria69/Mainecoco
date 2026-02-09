@@ -1,1 +1,1 @@
-## What kind of dog lives in a particle accelerator? A Fermilabrador Retriever.
+## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
