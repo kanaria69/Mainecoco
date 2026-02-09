@@ -1,1 +1,1 @@
-## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
+## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
