@@ -1,1 +1,1 @@
-## What's the difference between a guitar and a fish? You can tune a guitar but you can't "tuna" fish!
+## I got a reversible jacket for Christmas, I can't wait to see how it turns out.
