@@ -1,1 +1,1 @@
-## Egyptians claimed to invent the guitar, but they were such lyres.﻿
+## Why did the kid throw the clock out the window? He wanted to see time fly!
