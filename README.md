@@ -1,1 +1,1 @@
-## I've just written a song about a tortilla. Well, it is more of a rap really.
+## I tried to write a chemistry joke, but could never get a reaction.
