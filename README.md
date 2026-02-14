@@ -1,1 +1,1 @@
-## How many tickles does it take to tickle an octopus? Ten-tickles!
+## Why do mathematicians hate the U.S.? Because it's indivisible.
