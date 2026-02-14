@@ -1,1 +1,1 @@
-## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
+## What do you do on a remote island? Try and find the TV island it belongs to.
