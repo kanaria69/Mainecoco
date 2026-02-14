@@ -1,1 +1,1 @@
-## What do you do on a remote island? Try and find the TV island it belongs to.
+## A man walked in to a bar with some asphalt on his arm. He said “Two beers please, one for me and one for the road.”
