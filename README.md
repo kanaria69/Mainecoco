@@ -1,1 +1,1 @@
-## Why do mathematicians hate the U.S.? Because it's indivisible.
+## To the person who stole my anti-depressant pills: I hope you're happy now.
