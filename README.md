@@ -1,1 +1,1 @@
-## What do you call a bear with no teeth? A gummy bear!
+## What do you do when your bunny gets wet? You get your hare dryer.
