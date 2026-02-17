@@ -1,1 +1,1 @@
-## What does a female snake use for support? A co-Bra!
+## How many tickles does it take to tickle an octopus? Ten-tickles!
