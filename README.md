@@ -1,1 +1,1 @@
-## How many tickles does it take to tickle an octopus? Ten-tickles!
+## Did you hear about the kidnapping at school? It's ok, he woke up.
