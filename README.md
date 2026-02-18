@@ -1,3 +1,1 @@
-## Why do pumpkins sit on people’s porches?
-## 
-## They have no hands to knock on the door.
+## How do you teach a kid to climb stairs? There is a step by step guide.
