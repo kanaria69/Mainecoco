@@ -1,1 +1,1 @@
-## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
+## Two muffins were sitting in an oven, and the first looks over to the second, and says, “man, it’s really hot in here”. The second looks over at the first with a surprised look, and answers, “WHOA, a talking muffin!”
