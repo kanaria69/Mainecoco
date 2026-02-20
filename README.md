@@ -1,1 +1,1 @@
-## How do the trees get on the internet? They log on.
+## It's difficult to say what my wife does, she sells sea shells by the sea shore.
