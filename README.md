@@ -1,1 +1,1 @@
-## I cut my finger chopping cheese, but I think that I may have grater problems.
+## A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
