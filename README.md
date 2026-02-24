@@ -1,1 +1,1 @@
-## Today a man knocked on my door and asked for a small donation towards the local swimming pool. I gave him a glass of water.
+## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
