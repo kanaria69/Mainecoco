@@ -1,1 +1,1 @@
-## Why do bears have hairy coats? Fur protection.
+## Atheism is a non-prophet organisation.
