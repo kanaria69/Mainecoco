@@ -1,1 +1,1 @@
-## Why was the big cat disqualified from the race? Because it was a cheetah.
+## Why do crabs never give to charity? Because they’re shellfish.
