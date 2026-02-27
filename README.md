@@ -1,1 +1,1 @@
-## I boiled a funny bone last night and had a laughing stock
+## This morning I was wondering where the sun was, but then it dawned on me.
