@@ -1,1 +1,1 @@
-## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
+## “Doctor, I’ve broken my arm in several places” Doctor “Well don’t go to those places.”
