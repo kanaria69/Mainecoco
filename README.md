@@ -1,1 +1,1 @@
-## I was going to learn how to juggle, but I didn't have the balls.
+## Have you heard about corduroy pillows?  They're making headlines!
