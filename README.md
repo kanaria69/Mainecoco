@@ -1,1 +1,1 @@
-## If at first you don't succeed, sky diving is not for you!
+## Want to hear a joke about construction? Nah, I'm still working on it.
