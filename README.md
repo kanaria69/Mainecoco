@@ -1,2 +1,1 @@
-## What is the best way to carve?
-## Whittle by whittle.
+## Where do you learn to make banana splits? At sundae school.
