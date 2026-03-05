@@ -1,1 +1,1 @@
-## What is worse then finding a worm in your Apple? Finding half a worm in your Apple.
+## Why is the new Kindle screen textured to look like paper? So you feel write at home.
