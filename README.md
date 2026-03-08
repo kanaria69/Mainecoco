@@ -1,1 +1,1 @@
-## Why did the man put his money in the freezer? He wanted cold hard cash!
+## Parallel lines have so much in common. It’s a shame they’ll never meet.
