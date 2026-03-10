@@ -1,1 +1,1 @@
-## What's the difference between a hippo and a zippo? One is really heavy, the other is a little lighter.
+## I got a reversible jacket for Christmas, I can't wait to see how it turns out.
