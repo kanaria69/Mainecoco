@@ -1,1 +1,1 @@
-## Why did the tree go to the dentist? It needed a root canal.
+## I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
