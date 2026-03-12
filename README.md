@@ -1,1 +1,1 @@
-## Conjunctivitis.com – now that’s a site for sore eyes.
+## I was going to get a brain transplant, but I changed my mind
