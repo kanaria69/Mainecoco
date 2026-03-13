@@ -1,1 +1,1 @@
-## A steak pun is a rare medium well done.
+## Want to hear a joke about construction? Nah, I'm still working on it.
