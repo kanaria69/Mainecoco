@@ -1,1 +1,1 @@
-## I saw a documentary on TV last night about how they put ships together.  It was rivetting.
+## I applied to be a doorman but didn't get the job due to lack of experience. That surprised me, I thought it was an entry level position.
