@@ -1,1 +1,1 @@
-## I just got fired from a florist, apparently I took too many leaves.
+## Why did the man run around his bed? Because he was trying to catch up on his sleep!
