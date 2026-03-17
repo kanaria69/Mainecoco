@@ -1,1 +1,1 @@
-## Why did the opera singer go sailing? They wanted to hit the high Cs.
+## Have you ever seen fruit preserves being made? It's jarring.
