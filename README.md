@@ -1,1 +1,1 @@
-## What did the beaver say to the tree? It's been nice gnawing you.
+## A police officer caught two kids playing with a firework and a car battery. He charged one and let the other one off.
