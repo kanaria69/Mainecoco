@@ -1,1 +1,1 @@
-## Wife told me to take the spider out instead of killing it... We had some drinks, cool guy, wants to be a web developer.
+## How come a man driving a train got struck by lightning? He was a good conductor.
