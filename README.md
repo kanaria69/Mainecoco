@@ -1,1 +1,1 @@
-## How come a man driving a train got struck by lightning? He was a good conductor.
+## I am terrified of elevators. I’m going to start taking steps to avoid them.
