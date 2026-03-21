@@ -1,1 +1,1 @@
-## Me and my mates are in a band called Duvet. We're a cover band.
+## I'd like to start a diet, but I've got too much on my plate right now.
