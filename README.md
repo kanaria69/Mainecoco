@@ -1,1 +1,1 @@
-## I'd like to start a diet, but I've got too much on my plate right now.
+## I asked a frenchman if he played video games. He said "Wii"
