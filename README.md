@@ -1,1 +1,1 @@
-## What has three letters and starts with gas? A Car.
+## Why don't sharks eat clowns?  Because they taste funny.
