@@ -1,1 +1,1 @@
-## Why don't sharks eat clowns?  Because they taste funny.
+## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
