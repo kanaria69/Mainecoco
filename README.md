@@ -1,1 +1,1 @@
-## What’s E.T. short for? He’s only got little legs.
+## What time did the man go to the dentist? Tooth hurt-y.
