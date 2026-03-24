@@ -1,1 +1,1 @@
-## Archaeology really is a career in ruins.
+## Why are fish so smart? Because they live in schools!
