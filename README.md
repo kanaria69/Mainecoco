@@ -1,1 +1,1 @@
-## Don't buy flowers at a monastery. Because only you can prevent florist friars.
+## My son is studying to be a surgeon, I just hope he makes the cut.
