@@ -1,1 +1,1 @@
-## What time did the man go to the dentist? Tooth hurt-y.
+## Don't buy flowers at a monastery. Because only you can prevent florist friars.
