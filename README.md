@@ -1,1 +1,1 @@
-## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
+## I had a pair of racing snails. I removed their shells to make them more aerodynamic, but they became sluggish.
