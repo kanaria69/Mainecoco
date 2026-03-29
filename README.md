@@ -1,1 +1,1 @@
-## An apple a day keeps the bullies away. If you throw it hard enough.
+## Why did the man put his money in the freezer? He wanted cold hard cash!
