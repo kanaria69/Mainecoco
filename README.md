@@ -1,1 +1,1 @@
-## Toasters were the first form of pop-up notifications.
+## You can't trust a ladder. It will always let you down
