@@ -1,1 +1,1 @@
-## What did the doctor say to the gingerbread man who broke his leg? Try icing it.
+## An apple a day keeps the bullies away. If you throw it hard enough.
