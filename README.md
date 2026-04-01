@@ -1,1 +1,1 @@
-## My dentist is the best, he even has a little plaque!
+## Why is the ocean always blue? Because the shore never waves back.
