@@ -1,1 +1,1 @@
-## Why is the ocean always blue? Because the shore never waves back.
+## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
