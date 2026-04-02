@@ -1,1 +1,1 @@
-## My dog used to chase people on a bike a lot. It got so bad I had to take his bike away.
+## Why don't skeletons ride roller coasters? They don't have the stomach for it.
