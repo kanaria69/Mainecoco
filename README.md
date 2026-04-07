@@ -1,1 +1,1 @@
-## If you’re struggling to think of what to get someone for Christmas. Get them a fridge and watch their face light up when they open it.
+## Why don't skeletons ride roller coasters? They don't have the stomach for it.
