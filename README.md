@@ -1,3 +1,2 @@
-## Where was the Declaration of Independence signed?
-## 
-## At the bottom! 
+## What's large, grey, and doesn't matter?
+## An irrelephant.
