@@ -1,1 +1,1 @@
-## How do you make Lady Gaga cry? Poker face. 
+## How many South Americans does it take to change a lightbulb? A Brazilian
