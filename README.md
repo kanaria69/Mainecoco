@@ -1,1 +1,1 @@
-## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
+## What's the best thing about elevator jokes? They work on so many levels.
