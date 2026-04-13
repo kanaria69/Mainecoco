@@ -1,1 +1,1 @@
-## My boss told me to have a good day... so I went home.
+## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
