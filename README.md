@@ -1,2 +1,1 @@
-## What's large, grey, and doesn't matter?
-## An irrelephant.
+## I was shocked when I was diagnosed as colorblind... It came out of the purple.
