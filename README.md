@@ -1,1 +1,1 @@
-## Why do crabs never give to charity? Because they’re shellfish.
+## What creature is smarter than a talking parrot? A spelling bee.
