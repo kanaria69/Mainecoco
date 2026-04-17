@@ -1,1 +1,1 @@
-## If at first you don't succeed, sky diving is not for you!
+## The urge to sing the Lion King song is just a whim away.
