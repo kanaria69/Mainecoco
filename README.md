@@ -1,1 +1,1 @@
-## What creature is smarter than a talking parrot? A spelling bee.
+## If at first you don't succeed, sky diving is not for you!
