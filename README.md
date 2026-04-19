@@ -1,1 +1,1 @@
-## Animal Fact #25: Most bobcats are not named bob.
+## What time did the man go to the dentist? Tooth hurt-y.
