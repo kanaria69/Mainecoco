@@ -1,1 +1,1 @@
-## I went to the store to pick up eight cans of sprite... when I got home I realized I'd only picked seven up
+## Why can't your nose be 12 inches long? Because then it'd be a foot!
