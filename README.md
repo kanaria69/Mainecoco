@@ -1,1 +1,1 @@
-## What time did the man go to the dentist? Tooth hurt-y.
+## I made a belt out of watches once... It was a waist of time.
