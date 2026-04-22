@@ -1,1 +1,1 @@
-## Atheism is a non-prophet organisation.
+## What do you call a duck that gets all A's? A wise quacker.
