@@ -1,1 +1,1 @@
-## Why can't eggs have love? They will break up too soon.
+## Why do bears have hairy coats? Fur protection.
