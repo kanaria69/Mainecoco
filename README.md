@@ -1,1 +1,1 @@
-## Have you ever seen fruit preserves being made? It's jarring.
+## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
