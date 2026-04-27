@@ -1,1 +1,1 @@
-## A boy dug three holes in the yard. When his mother saw, she exclaimed: "well, well, well"
+## I met this girl on a dating site and, I don't know, we just clicked.
