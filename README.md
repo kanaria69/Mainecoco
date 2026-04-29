@@ -1,1 +1,1 @@
-## I fear for the calendar, its days are numbered.
+## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
