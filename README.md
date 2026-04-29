@@ -1,1 +1,1 @@
-## Why do cows wear bells? Because their horns don't work.
+## I fear for the calendar, its days are numbered.
