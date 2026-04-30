@@ -1,1 +1,1 @@
-## What do you do when your bunny gets wet? You get your hare dryer.
+## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
