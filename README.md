@@ -1,2 +1,1 @@
-## "Dad, I'm cold."
-## "Go stand in the corner, I hear it's 90 degrees."
+## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
