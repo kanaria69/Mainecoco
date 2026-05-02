@@ -1,1 +1,1 @@
-## Where did Captain Hook get his hook? From a second hand store.
+## So a duck walks into a pharmacy and says “Give me some chap-stick… and put it on my bill”
