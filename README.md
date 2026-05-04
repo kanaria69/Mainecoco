@@ -1,1 +1,1 @@
-## You can't run through a camp site. You can only ran, because it's past tents.
+## If two vegans are having an argument, is it still considered beef?
