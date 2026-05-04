@@ -1,1 +1,1 @@
-## How do you find Will Smith in the snow?  Look for fresh prints.
+## You can't run through a camp site. You can only ran, because it's past tents.
