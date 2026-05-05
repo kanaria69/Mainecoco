@@ -1,1 +1,1 @@
-## I used to hate facial hair, but then it grew on me.
+## Can I watch the TV? Dad: Yes, but don’t turn it on.
