@@ -1,1 +1,1 @@
-## If two vegans are having an argument, is it still considered beef?
+## I used to hate facial hair, but then it grew on me.
