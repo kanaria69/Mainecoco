@@ -1,1 +1,1 @@
-## What happens when you anger a brain surgeon? They will give you a piece of your mind.
+## A man tried to sell me a coffin today. I told him that's the last thing I need.
