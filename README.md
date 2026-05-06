@@ -1,1 +1,1 @@
-## A man tried to sell me a coffin today. I told him that's the last thing I need.
+## I was thinking about moving to Moscow but there is no point Russian into things.
