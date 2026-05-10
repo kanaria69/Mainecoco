@@ -1,1 +1,1 @@
-## Geology rocks, but Geography is where it's at!
+## Why do birds fly south for the winter? Because it's too far to walk.
