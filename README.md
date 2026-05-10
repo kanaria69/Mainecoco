@@ -1,1 +1,1 @@
-## A steak pun is a rare medium well done.
+## Where do sheep go to get their hair cut? The baa-baa shop.
