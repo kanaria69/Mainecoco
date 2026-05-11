@@ -1,1 +1,1 @@
-## What does an angry pepper do? It gets jalapeño face.
+## Have you ever heard of a music group called Cellophane? They mostly wrap.
