@@ -1,1 +1,1 @@
-## Have you ever heard of a music group called Cellophane? They mostly wrap.
+## Why do valley girls hang out in odd numbered groups? Because they can't even.
