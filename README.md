@@ -1,1 +1,1 @@
-## Why was ten scared of seven? Because seven ate nine.
+## I've been trying to come up with a dad joke about momentum . . . but I just can't seem to get it going.
