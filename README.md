@@ -1,1 +1,1 @@
-## I'd like to start a diet, but I've got too much on my plate right now.
+## Why was Santa's little helper feeling depressed? Because he has low elf esteem.
