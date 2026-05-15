@@ -1,1 +1,1 @@
-## A steak pun is a rare medium well done.
+## What was a more important invention than the first telephone? The second one.
