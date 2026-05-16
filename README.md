@@ -1,1 +1,1 @@
-## A magician was driving down the street and then he turned into a driveway.
+## Why does Superman get invited to dinners? Because he is a Supperhero.
