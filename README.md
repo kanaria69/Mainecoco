@@ -1,1 +1,1 @@
-## I cut my finger chopping cheese, but I think that I may have grater problems.
+## How come a man driving a train got struck by lightning? He was a good conductor.
