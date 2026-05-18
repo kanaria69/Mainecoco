@@ -1,1 +1,1 @@
-## How come a man driving a train got struck by lightning? He was a good conductor.
+## "What time is it?" I don't know... it keeps changing.
