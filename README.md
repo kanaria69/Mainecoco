@@ -1,1 +1,1 @@
-## Two satellites decided to get married. The wedding wasn't much, but the reception was incredible.
+## Why can't a bicycle stand on its own? It's two-tired.
