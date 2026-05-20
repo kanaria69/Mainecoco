@@ -1,1 +1,1 @@
-## What did one plate say to the other plate? Dinner is on me!
+## I ordered a chicken and an egg from Amazon. I'll let you know.
