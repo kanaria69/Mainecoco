@@ -1,1 +1,1 @@
-## What do you get hanging from Apple trees? Sore arms.
+## What did one plate say to the other plate? Dinner is on me!
