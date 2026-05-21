@@ -1,1 +1,2 @@
-## Americans can't switch from pounds to kilograms overnight. That would cause mass confusion.
+## Cosmetic surgery used to be such a taboo subject.
+## Now you can talk about Botox and nobody raises an eyebrow.
