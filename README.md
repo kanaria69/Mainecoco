@@ -1,1 +1,1 @@
-## Did you hear that the police have a warrant out on a midget psychic ripping people off? It reads “Small medium at large.”
+## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
