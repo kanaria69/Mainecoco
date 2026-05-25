@@ -1,1 +1,1 @@
-## Why did the tree go to the dentist? It needed a root canal.
+## Why did the chicken get a penalty? For fowl play.
