@@ -1,1 +1,1 @@
-## Why are fish so smart? Because they live in schools!
+## I considered building the patio by myself. But I didn't have the stones.
