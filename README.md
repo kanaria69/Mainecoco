@@ -1,1 +1,1 @@
-## I considered building the patio by myself. But I didn't have the stones.
+## I don't trust sushi, there's something fishy about it.
