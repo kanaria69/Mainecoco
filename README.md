@@ -1,1 +1,1 @@
-## You can't trust a ladder. It will always let you down
+## How many kids with ADD does it take to change a lightbulb? Let's go ride bikes!
