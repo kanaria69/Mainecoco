@@ -1,2 +1,1 @@
-## Why did the cookie cry?
-## Because his mother was a wafer so long
+## Our wedding was so beautiful, even the cake was in tiers.
