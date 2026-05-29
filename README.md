@@ -1,1 +1,1 @@
-## What do you call two barracuda fish?  A Pairacuda!
+## What do you get when you cross a chicken with a skunk? A fowl smell!
