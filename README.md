@@ -1,1 +1,1 @@
-## “Hold on, I have something in my shoe”  “I’m pretty sure it’s a foot”
+## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
