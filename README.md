@@ -1,1 +1,1 @@
-## Shout out to my grandma, that's the only way she can hear.
+## Why did the octopus beat the shark in a fight? Because it was well armed.
