@@ -1,1 +1,1 @@
-## When does a joke become a dad joke? When it becomes apparent.
+## Sgt.: Commissar! Commissar! The troops are revolting! Commissar: Well, you’re pretty repulsive yourself.
