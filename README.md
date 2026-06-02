@@ -1,1 +1,1 @@
-## I’ll tell you something about German sausages, they’re the wurst
+## A Skeleton walked into a bar he said I need a beer and a mop
