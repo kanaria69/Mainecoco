@@ -1,1 +1,1 @@
-## The urge to sing the Lion King song is just a whim away.
+## A beekeeper was indicted after he confessed to years of stealing at work. They charged him with emBEEzlement
