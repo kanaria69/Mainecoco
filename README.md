@@ -1,1 +1,1 @@
-## A Skeleton walked into a bar he said I need a beer and a mop
+## The urge to sing the Lion King song is just a whim away.
