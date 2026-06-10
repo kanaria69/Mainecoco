@@ -1,1 +1,1 @@
-## What do you call an elephant that doesn’t matter? An irrelephant.
+## I couldn't get a reservation at the library. They were completely booked.
