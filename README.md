@@ -1,1 +1,2 @@
-## What is a tornado's favorite game to play? Twister!
+## What is red and smells like blue paint?
+## Red paint!
