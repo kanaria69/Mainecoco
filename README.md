@@ -1,2 +1,1 @@
-## What is red and smells like blue paint?
-## Red paint!
+## What do you get if you cross a turkey with a ghost? A poultry-geist!
