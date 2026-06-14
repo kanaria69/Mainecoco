@@ -1,1 +1,1 @@
-## New atoms frequently lose electrons when they fail to keep an ion them.
+## I broke my finger at work today, on the other hand I'm completely fine.
