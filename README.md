@@ -1,1 +1,1 @@
-## Why doesn't the Chimney-Sweep call out sick from work? Because he's used to working with a flue.
+## My cat was just sick on the carpet, I don’t think it’s feline well.
