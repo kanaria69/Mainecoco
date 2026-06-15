@@ -1,1 +1,1 @@
-## What did the 0 say to the 8? Nice belt.
+## Why doesn't the Chimney-Sweep call out sick from work? Because he's used to working with a flue.
