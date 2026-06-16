@@ -1,1 +1,1 @@
-## Where do young cows eat lunch? In the calf-ateria.
+## What did one wall say to the other wall? I'll meet you at the corner!
