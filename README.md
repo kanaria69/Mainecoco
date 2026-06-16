@@ -1,1 +1,1 @@
-## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
+## Where do young cows eat lunch? In the calf-ateria.
