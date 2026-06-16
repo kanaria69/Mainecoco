@@ -1,1 +1,1 @@
-## How does a dyslexic poet write? Inverse.
+## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
