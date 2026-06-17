@@ -1,3 +1,1 @@
-## What's the worst part about being a cross-eyed teacher?
-## 
-## They can't control their pupils.
+## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
