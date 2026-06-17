@@ -1,1 +1,3 @@
-## What did one wall say to the other wall? I'll meet you at the corner!
+## What's the worst part about being a cross-eyed teacher?
+## 
+## They can't control their pupils.
