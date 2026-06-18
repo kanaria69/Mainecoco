@@ -1,1 +1,1 @@
-## I've got a joke about vegetables for you... but it's a bit corny.
+## What's the difference between a hippo and a zippo? One is really heavy, the other is a little lighter.
