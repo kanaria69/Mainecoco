@@ -1,1 +1,1 @@
-## Why do bears have hairy coats? Fur protection.
+## Have you heard the rumor going around about butter? Never mind, I shouldn't spread it.
