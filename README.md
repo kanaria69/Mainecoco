@@ -1,1 +1,1 @@
-## What does an angry pepper do? It gets jalapeño face.
+## Where does batman go to the bathroom? The batroom.
