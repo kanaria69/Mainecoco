@@ -1,1 +1,1 @@
-## Why don't eggs tell jokes? They'd crack each other up
+## Why don't sharks eat clowns?  Because they taste funny.
