@@ -1,1 +1,1 @@
-## What kind of award did the dentist receive? A little plaque.
+## I gave all my dead batteries away today, free of charge.
