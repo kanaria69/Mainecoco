@@ -1,1 +1,1 @@
-## Two peanuts were walking down the street. One was a salted.
+## What happens to a frog's car when it breaks down? It gets toad.
