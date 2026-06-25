@@ -1,1 +1,1 @@
-## New atoms frequently lose electrons when they fail to keep an ion them.
+## Why did the kid throw the clock out the window? He wanted to see time fly!
