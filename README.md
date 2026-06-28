@@ -1,1 +1,1 @@
-## There's not really any training for garbagemen. They just pick things up as they go.
+## Why do crabs never give to charity? Because they’re shellfish.
