@@ -1,1 +1,1 @@
-## What do you get if you put a duck in a cement mixer? Quacks in the pavement.
+## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
