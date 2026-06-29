@@ -1,1 +1,1 @@
-## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
+## I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
