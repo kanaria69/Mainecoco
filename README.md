@@ -1,1 +1,1 @@
-## Why do cows not have toes? They lactose!
+## A boy dug three holes in the yard. When his mother saw, she exclaimed: "well, well, well"
