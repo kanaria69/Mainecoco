@@ -1,1 +1,1 @@
-## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
+## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
