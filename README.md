@@ -1,1 +1,1 @@
-## What do you call a fish wearing a bowtie? Sofishticated.
+## Why couldn't the lifeguard save the hippie? He was too far out, man.
