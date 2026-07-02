@@ -1,1 +1,1 @@
-## I've just written a song about a tortilla. Well, it is more of a rap really.
+## I accidentally drank a bottle of invisible ink. Now I’m in hospital, waiting to be seen.
