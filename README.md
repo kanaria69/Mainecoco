@@ -1,1 +1,1 @@
-## I’m on a whiskey diet. I’ve lost three days already.
+## What did one wall say to the other wall? I'll meet you at the corner!
