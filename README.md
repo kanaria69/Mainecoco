@@ -1,1 +1,1 @@
-## My boss told me to have a good day... so I went home.
+## What's the worst thing about ancient history class? The teachers tend to Babylon.
