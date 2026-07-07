@@ -1,1 +1,1 @@
-## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
+## Why was Santa's little helper feeling depressed? Because he has low elf esteem.
