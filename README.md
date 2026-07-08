@@ -1,1 +1,1 @@
-## My son is studying to be a surgeon, I just hope he makes the cut.
+## Wife told me to take the spider out instead of killing it... We had some drinks, cool guy, wants to be a web developer.
