@@ -1,1 +1,1 @@
-## What do you call a sheep with no legs? A cloud.
+## Frankenstein enters a bodybuilding competition and finds he has seriously misunderstood the objective.
