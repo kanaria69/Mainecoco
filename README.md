@@ -1,1 +1,1 @@
-## What's the difference between a guitar and a fish? You can tune a guitar but you can't "tuna" fish!
+## Why does a chicken coop only have two doors? Because if it had four doors it would be a chicken sedan.
