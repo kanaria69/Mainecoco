@@ -1,1 +1,1 @@
-## I made a belt out of watches once... It was a waist of time.
+## How does the moon cut his hair? Eclipse it.
