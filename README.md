@@ -1,1 +1,2 @@
-## Did you hear about the kidnapping at school? It's ok, he woke up.
+## Why did the cookie cry?
+## Because his mother was a wafer so long
