@@ -1,1 +1,1 @@
-## How does the moon cut his hair? Eclipse it.
+## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
