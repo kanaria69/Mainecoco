@@ -1,2 +1,1 @@
-## Why did the cookie cry?
-## Because his mother was a wafer so long
+## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
