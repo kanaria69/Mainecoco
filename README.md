@@ -1,1 +1,1 @@
-## I just got fired from a florist, apparently I took too many leaves.
+## I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
