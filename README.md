@@ -1,1 +1,1 @@
-## Why did the tomato blush? Because it saw the salad dressing.
+## Why couldn't the kid see the pirate movie? Because it was rated arrr!
