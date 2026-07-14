@@ -1,1 +1,1 @@
-## Why couldn't the kid see the pirate movie? Because it was rated arrr!
+## Why did the scarecrow win an award? Because he was outstanding in his field.
