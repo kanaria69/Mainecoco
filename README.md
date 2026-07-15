@@ -1,1 +1,1 @@
-## I just got fired from a florist, apparently I took too many leaves.
+## Why don't eggs tell jokes? They'd crack each other up
