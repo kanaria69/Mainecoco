@@ -1,1 +1,1 @@
-## I bought shoes from a drug dealer once. I don't know what he laced them with, but I was tripping all day.
+## New atoms frequently lose electrons when they fail to keep an ion them.
