@@ -1,1 +1,1 @@
-## I used to work for a soft drink can crusher. It was soda pressing.
+## I just wrote a book on reverse psychology. Do not read it!
