@@ -1,1 +1,1 @@
-## How come the stadium got hot after the game? Because all of the fans left.
+## I used to work for a soft drink can crusher. It was soda pressing.
