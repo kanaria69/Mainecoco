@@ -1,1 +1,1 @@
-## Why did the opera singer go sailing? They wanted to hit the high Cs.
+## How many South Americans does it take to change a lightbulb? A Brazilian
