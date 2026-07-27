@@ -1,1 +1,1 @@
-## Two peanuts were walking down the street. One was a salted
+## Did you hear about the new restaurant on the moon? The food is great, but there’s just no atmosphere.
