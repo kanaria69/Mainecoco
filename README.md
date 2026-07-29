@@ -1,1 +1,1 @@
-## How does Darth Vader like his toast? On the dark side.
+## Why did the m&m go to school? Because it wanted to be a Smartie!
