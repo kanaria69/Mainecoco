@@ -1,1 +1,1 @@
-## Slept like a log last night … woke up in the fireplace.
+## What kind of pants do ghosts wear? Boo jeans.
