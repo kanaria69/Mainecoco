@@ -1,1 +1,1 @@
-## I was wondering why the frisbee was getting bigger, then it hit me.
+## Why did the girl smear peanut butter on the road? To go with the traffic jam.
