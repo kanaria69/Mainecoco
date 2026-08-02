@@ -1,1 +1,1 @@
-## What do you call your friend who stands in a hole? Phil.
+## It was so cold yesterday my computer froze. My own fault though, I left too many windows open.
