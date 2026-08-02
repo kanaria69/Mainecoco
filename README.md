@@ -1,1 +1,1 @@
-## There’s a new type of broom out, it’s sweeping the nation.
+## What do you call a duck that gets all A's? A wise quacker.
