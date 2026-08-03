@@ -1,1 +1,1 @@
-## Did you hear the joke about the wandering nun? She was a roman catholic.
+## Why did the feline fail the lie detector test? Because he be lion.
