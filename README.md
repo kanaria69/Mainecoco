@@ -1,1 +1,1 @@
-## I went to the zoo the other day, there was only one dog in it. It was a shitzu.
+## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
