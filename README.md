@@ -1,1 +1,1 @@
-## Why do you never see elephants hiding in trees? Because they're so good at it.
+## I wouldn't buy anything with velcro. It's a total rip-off.
