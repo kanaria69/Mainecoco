@@ -1,1 +1,1 @@
-## I wouldn't buy anything with velcro. It's a total rip-off.
+## What is worse then finding a worm in your Apple? Finding half a worm in your Apple.
