@@ -1,1 +1,1 @@
-## What is worse then finding a worm in your Apple? Finding half a worm in your Apple.
+## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
