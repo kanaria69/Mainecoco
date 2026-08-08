@@ -1,1 +1,1 @@
-## What does a pirate pay for his corn? A buccaneer!
+## What did the 0 say to the 8? Nice belt.
