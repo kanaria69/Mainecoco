@@ -1,1 +1,1 @@
-## What did the 0 say to the 8? Nice belt.
+## I knew a guy who collected candy canes, they were all in mint condition
