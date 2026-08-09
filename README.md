@@ -1,1 +1,1 @@
-## I’m on a whiskey diet. I’ve lost three days already.
+## Why do nurses carry around red crayons? Sometimes they need to draw blood.
