@@ -1,1 +1,1 @@
-## What is worse then finding a worm in your Apple? Finding half a worm in your Apple.
+## A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
