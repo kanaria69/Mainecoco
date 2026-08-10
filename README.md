@@ -1,1 +1,1 @@
-## I don't trust sushi, there's something fishy about it.
+## Why did Dracula lie in the wrong coffin? He made a grave mistake.
