@@ -1,2 +1,1 @@
-## Cosmetic surgery used to be such a taboo subject.
-## Now you can talk about Botox and nobody raises an eyebrow.
+## A beekeeper was indicted after he confessed to years of stealing at work. They charged him with emBEEzlement
