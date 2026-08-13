@@ -1,1 +1,1 @@
-## What did the piece of bread say to the knife? Butter me up.
+## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
