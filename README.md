@@ -1,1 +1,1 @@
-## What is a vampire's favorite fruit? A blood orange.
+## What do computers and air conditioners have in common? They both become useless when you open windows.
