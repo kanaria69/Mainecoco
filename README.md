@@ -1,1 +1,1 @@
-## Thanks for explaining the word "many" to me. It means a lot.
+## People who don't eat gluten are really going against the grain.
