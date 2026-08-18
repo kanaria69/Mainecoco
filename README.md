@@ -1,1 +1,1 @@
-## If two vegans are having an argument, is it still considered beef?
+## What did celery say when he broke up with his girlfriend? She wasn't right for me, so I really don't carrot all.
