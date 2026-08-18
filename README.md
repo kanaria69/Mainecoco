@@ -1,1 +1,1 @@
-## Why was Santa's little helper feeling depressed? Because he has low elf esteem.
+## What do you do when your bunny gets wet? You get your hare dryer.
