@@ -1,1 +1,1 @@
-## What did celery say when he broke up with his girlfriend? She wasn't right for me, so I really don't carrot all.
+## A Sandwich walks into a bar, the bartender says “Sorry, we don’t serve food here”
