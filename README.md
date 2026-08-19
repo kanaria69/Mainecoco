@@ -1,1 +1,1 @@
-## What do you do when your bunny gets wet? You get your hare dryer.
+## Why did the kid throw the clock out the window? He wanted to see time fly!
