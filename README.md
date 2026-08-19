@@ -1,1 +1,1 @@
-## Where did you learn to make ice cream? Sunday school.
+## How do you find Will Smith in the snow?  Look for fresh prints.
