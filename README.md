@@ -1,1 +1,1 @@
-## What do you call corn that joins the army? Kernel.
+## Why was it called the dark ages? Because of all the knights. 
