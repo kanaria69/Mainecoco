@@ -1,1 +1,1 @@
-## Who did the wizard marry? His ghoul-friend
+## What happens when you anger a brain surgeon? They will give you a piece of your mind.
