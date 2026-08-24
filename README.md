@@ -1,1 +1,1 @@
-## There's not really any training for garbagemen. They just pick things up as they go.
+## A horse walks into a bar. The bar tender says "Hey." The horse says "Sure."
