@@ -1,1 +1,1 @@
-## A horse walks into a bar. The bar tender says "Hey." The horse says "Sure."
+## What did the digital clock say to the grandfather clock? Look, no hands!
