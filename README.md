@@ -1,1 +1,1 @@
-## What creature is smarter than a talking parrot? A spelling bee.
+## I was wondering why the frisbee was getting bigger, then it hit me.
