@@ -1,1 +1,1 @@
-## What did the digital clock say to the grandfather clock? Look, no hands!
+## I knew i shouldn’t have ate that seafood. Because now i’m feeling a little… Eel
