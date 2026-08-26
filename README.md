@@ -1,1 +1,1 @@
-## What do you call corn that joins the army? Kernel.
+## Who is the coolest Doctor in the hospital? The hip Doctor!
