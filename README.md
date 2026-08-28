@@ -1,1 +1,1 @@
-## Why did the kid cross the playground? To get to the other slide.
+## Mountains aren't just funny, they are hill areas
