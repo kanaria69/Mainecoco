@@ -1,1 +1,1 @@
-## Why did the sentence fail the driving test? It never came to a full stop.
+## I went to the doctor today and he told me I had type A blood but it was a type O.
