@@ -1,1 +1,1 @@
-## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
+## Where do you take someone who’s been injured in a peek-a-boo accident? To the I.C.U.
