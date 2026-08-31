@@ -1,1 +1,1 @@
-## I accidentally drank a bottle of invisible ink. Now I’m in hospital, waiting to be seen.
+## Two fish are in a tank, one turns to the other and says, "how do you drive this thing?"
