@@ -1,1 +1,1 @@
-## How come the stadium got hot after the game? Because all of the fans left.
+## I accidentally drank a bottle of invisible ink. Now I’m in hospital, waiting to be seen.
