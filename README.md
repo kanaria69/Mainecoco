@@ -1,1 +1,1 @@
-## How are false teeth like stars? They come out at night!
+## Two silk worms had a race. They ended up in a tie.
