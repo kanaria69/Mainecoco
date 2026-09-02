@@ -1,1 +1,1 @@
-## I got fired from a florist, apparently I took too many leaves.
+## Two peanuts were walking down the street. One was a salted
