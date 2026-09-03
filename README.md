@@ -1,1 +1,1 @@
-## What happens to a frog's car when it breaks down? It gets toad.
+## Why do nurses carry around red crayons? Sometimes they need to draw blood.
