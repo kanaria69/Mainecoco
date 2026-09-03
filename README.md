@@ -1,1 +1,1 @@
-## Why did the octopus beat the shark in a fight? Because it was well armed.
+## What happens to a frog's car when it breaks down? It gets toad.
