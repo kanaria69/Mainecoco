@@ -1,1 +1,1 @@
-## How do you make holy water? You boil the hell out of it.
+## If you’re struggling to think of what to get someone for Christmas. Get them a fridge and watch their face light up when they open it.
