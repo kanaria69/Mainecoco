@@ -1,1 +1,1 @@
-## I accidentally drank a bottle of invisible ink. Now I’m in hospital, waiting to be seen.
+## I’ve got this disease where I can’t stop making airport puns. The doctor says it terminal.
