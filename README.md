@@ -1,1 +1,1 @@
-## I’ve got this disease where I can’t stop making airport puns. The doctor says it terminal.
+## I applied to be a doorman but didn't get the job due to lack of experience. That surprised me, I thought it was an entry level position.
