@@ -1,1 +1,1 @@
-## If you’re struggling to think of what to get someone for Christmas. Get them a fridge and watch their face light up when they open it.
+## I accidentally drank a bottle of invisible ink. Now I’m in hospital, waiting to be seen.
