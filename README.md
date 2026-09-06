@@ -1,1 +1,1 @@
-## How do you find Will Smith in the snow?  Look for fresh prints.
+## My boss told me that he was going to fire the person with the worst posture. I have a hunch, it might be me.
