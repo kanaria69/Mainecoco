@@ -1,1 +1,1 @@
-## Why did the barber win the race? He took a short cut.
+## Do you know where you can get chicken broth in bulk? The stock market.
