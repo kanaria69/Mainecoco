@@ -1,1 +1,1 @@
-## How do you make a hankie dance? Put a little boogie in it.
+## How do robots eat guacamole? With computer chips.
