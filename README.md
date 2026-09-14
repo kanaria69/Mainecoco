@@ -1,1 +1,1 @@
-## What is the leading cause of dry skin? Towels
+## Dermatologists are always in a hurry. They spend all day making rash decisions. 
