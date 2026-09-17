@@ -1,1 +1,1 @@
-## What do you call a bee that lives in America? A USB.
+## Me and my mates are in a band called Duvet. We're a cover band.
