@@ -1,1 +1,1 @@
-## I had a rough day, and then somebody went and ripped the front and back pages from my dictionary. It just goes from bad to worse.
+## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
