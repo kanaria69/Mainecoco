@@ -1,1 +1,1 @@
-## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
+## Why is the new Kindle screen textured to look like paper? So you feel write at home.
