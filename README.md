@@ -1,1 +1,2 @@
-## "Dad, I'm hungry." Hello, Hungry. I'm Dad.
+## What is red and smells like blue paint?
+## Red paint!
