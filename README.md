@@ -1,1 +1,1 @@
-## What happens when you anger a brain surgeon? They will give you a piece of your mind.
+## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
