@@ -1,1 +1,1 @@
-## "I'll call you later." Don't call me later, call me Dad.
+## What do you get when you cross a rabbit with a water hose? Hare spray.
