@@ -1,2 +1,1 @@
-## What's large, grey, and doesn't matter?
-## An irrelephant.
+## A man walks into a bar and orders helicopter flavor chips. The barman replies “sorry mate we only do plain”
