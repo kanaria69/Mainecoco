@@ -1,1 +1,2 @@
-## How many South Americans does it take to change a lightbulb? A Brazilian
+## What's large, grey, and doesn't matter?
+## An irrelephant.
