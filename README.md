@@ -1,1 +1,1 @@
-## When people are sad, I sometimes let them colour in my tattoos. Sometimes all they need is a shoulder to crayon.
+## Why can't you use "Beef stew" as a password? Because it's not stroganoff.
