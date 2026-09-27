@@ -1,1 +1,1 @@
-## The Swiss must've been pretty confident in their chances of victory if they included a corkscrew in their army knife.
+## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
