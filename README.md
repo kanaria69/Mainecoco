@@ -1,1 +1,1 @@
-## Where do rabbits go after they get married? On a bunny-moon.
+## Why did the Clydesdale give the pony a glass of water?  Because he was a little horse!
