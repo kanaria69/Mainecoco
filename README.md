@@ -1,1 +1,1 @@
-## What do Alexander the Great and Winnie the Pooh have in common? Same middle name.
+## What's the worst thing about ancient history class? The teachers tend to Babylon.
