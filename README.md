@@ -1,1 +1,1 @@
-## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
+## “Hold on, I have something in my shoe”  “I’m pretty sure it’s a foot”
