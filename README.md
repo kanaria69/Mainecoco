@@ -1,1 +1,1 @@
-## Mountains aren't just funny, they are hill areas
+## What's black and white and read all over? The newspaper.
