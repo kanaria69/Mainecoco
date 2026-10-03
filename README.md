@@ -1,1 +1,1 @@
-## What's black and white and read all over? The newspaper.
+## What don't watermelons get married? Because they cantaloupe.
