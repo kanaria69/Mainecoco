@@ -1,1 +1,1 @@
-## How many South Americans does it take to change a lightbulb? A Brazilian
+## Why didn't the number 4 get into the nightclub? Because he is 2 square.
