@@ -1,1 +1,1 @@
-## I just broke my guitar. It's okay, I won't fret
+## Want to hear a chimney joke? Got stacks of em! First one's on the house
