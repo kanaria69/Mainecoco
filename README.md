@@ -1,1 +1,1 @@
-## I used to be addicted to the hokey pokey, but I turned myself around.
+## Why do mathematicians hate the U.S.? Because it's indivisible.
