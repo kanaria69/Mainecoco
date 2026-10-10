@@ -1,1 +1,1 @@
-## Wife told me to take the spider out instead of killing it... We had some drinks, cool guy, wants to be a web developer.
+## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
