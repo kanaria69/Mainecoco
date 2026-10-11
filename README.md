@@ -1,1 +1,1 @@
-## How many bones are in the human hand? A handful of them.
+## "Hey, dad, did you get a haircut?" "No, I got them all cut."
