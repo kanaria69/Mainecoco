@@ -1,1 +1,1 @@
-## "Hey, dad, did you get a haircut?" "No, I got them all cut."
+## What did the ocean say to the shore? Nothing, it just waved.
