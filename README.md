@@ -1,1 +1,1 @@
-## What do you call a beehive without the b's? An eehive.
+## How many bones are in the human hand? A handful of them.
