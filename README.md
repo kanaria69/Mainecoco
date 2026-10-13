@@ -1,1 +1,1 @@
-## I can't take my dog to the pond anymore because the ducks keep attacking him. That's what I get for buying a pure bread dog.
+## Did you hear that David lost his ID in prague? Now we just have to call him Dav.
