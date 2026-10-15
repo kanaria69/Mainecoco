@@ -1,1 +1,1 @@
-## My new thesaurus is terrible. In fact, it's so bad, I'd say it's terrible.
+## Why do nurses carry around red crayons? Sometimes they need to draw blood.
