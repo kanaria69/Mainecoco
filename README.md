@@ -1,1 +1,1 @@
-## Why do nurses carry around red crayons? Sometimes they need to draw blood.
+## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
