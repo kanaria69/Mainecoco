@@ -1,1 +1,1 @@
-## How do robots eat guacamole? With computer chips.
+## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
