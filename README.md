@@ -1,1 +1,1 @@
-## Why did the worker get fired from the orange juice factory? Lack of concentration.
+## Bought a new jacket suit the other day and it burst into flames. Well, it was a blazer
