@@ -1,1 +1,1 @@
-## Bought a new jacket suit the other day and it burst into flames. Well, it was a blazer
+## How can you tell a vampire has a cold? They start coffin.
