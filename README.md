@@ -1,1 +1,1 @@
-## How can you tell a vampire has a cold? They start coffin.
+## If you think swimming with dolphins is expensive, you should try swimming with sharks--it cost me an arm and a leg!
