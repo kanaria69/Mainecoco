@@ -1,1 +1,1 @@
-## If you think swimming with dolphins is expensive, you should try swimming with sharks--it cost me an arm and a leg!
+## What do you call an alligator in a vest? An in-vest-igator!
