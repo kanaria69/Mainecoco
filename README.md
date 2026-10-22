@@ -1,1 +1,1 @@
-## Have you ever heard of a music group called Cellophane? They mostly wrap.
+## The first time I got a universal remote control I thought to myself, "This changes everything"
