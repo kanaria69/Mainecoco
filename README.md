@@ -1,1 +1,1 @@
-## Me and my mates are in a band called Duvet. We're a cover band.
+## I went to the doctor today and he told me I had type A blood but it was a type O.
