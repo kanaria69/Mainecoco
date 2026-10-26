@@ -1,1 +1,1 @@
-## I just broke my guitar. It's okay, I won't fret
+## Why can't eggs have love? They will break up too soon.
