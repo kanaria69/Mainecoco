@@ -1,1 +1,1 @@
-## Why can't eggs have love? They will break up too soon.
+## I couldn't figure out how the seat belt worked. Then it just clicked.
