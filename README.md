@@ -1,1 +1,1 @@
-## Why did the coffee file a police report? It got mugged.
+## Why do crabs never give to charity? Because they’re shellfish.
