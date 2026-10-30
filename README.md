@@ -1,2 +1,1 @@
-## Cosmetic surgery used to be such a taboo subject.
-## Now you can talk about Botox and nobody raises an eyebrow.
+## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
