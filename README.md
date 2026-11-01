@@ -1,1 +1,1 @@
-## Have you heard of the band 1023MB? They haven't got a gig yet.
+## I got fired from a florist, apparently I took too many leaves.
