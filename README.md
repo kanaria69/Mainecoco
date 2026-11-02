@@ -1,1 +1,1 @@
-## What concert costs only 45 cents? 50 cent featuring Nickelback.
+## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
