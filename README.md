@@ -1,2 +1,1 @@
-## What's the difference between a seal and a sea lion?
-## An ion! 
+## What concert costs only 45 cents? 50 cent featuring Nickelback.
