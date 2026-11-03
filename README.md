@@ -1,1 +1,1 @@
-## Today, my son asked "Can I have a book mark?" and I burst into tears. 11 years old and he still doesn't know my name is Brian.
+## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
