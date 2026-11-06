@@ -1,1 +1,1 @@
-## Why is it so windy inside an arena? All those fans.
+## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
