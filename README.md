@@ -1,1 +1,1 @@
-## What do you call two barracuda fish?  A Pairacuda!
+## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
