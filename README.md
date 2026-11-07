@@ -1,1 +1,1 @@
-## I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
+## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
