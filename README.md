@@ -1,1 +1,1 @@
-## Why did the octopus beat the shark in a fight? Because it was well armed.
+## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
