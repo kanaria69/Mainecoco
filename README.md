@@ -1,1 +1,1 @@
-## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
+## Why did the octopus beat the shark in a fight? Because it was well armed.
