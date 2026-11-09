@@ -1,1 +1,1 @@
-## How do you get two whales in a car? Start in England and drive West.
+## I was wondering why the frisbee was getting bigger, then it hit me.
