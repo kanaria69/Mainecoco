@@ -1,1 +1,2 @@
-## What did one plate say to the other plate? Dinner is on me!
+## Cosmetic surgery used to be such a taboo subject.
+## Now you can talk about Botox and nobody raises an eyebrow.
