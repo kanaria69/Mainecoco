@@ -1,1 +1,1 @@
-## What musical instrument is found in the bathroom? A tuba toothpaste.
+## I couldn't figure out how the seat belt worked. Then it just clicked.
