@@ -1,1 +1,1 @@
-## Why was the picture sent to prison? It was framed.
+## What musical instrument is found in the bathroom? A tuba toothpaste.
