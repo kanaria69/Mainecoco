@@ -1,1 +1,1 @@
-## What animal is always at a game of cricket? A bat.
+## My dentist is the best, he even has a little plaque!
