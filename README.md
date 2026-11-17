@@ -1,1 +1,1 @@
-## Mountains aren't just funny, they are hill areas
+## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
