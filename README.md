@@ -1,1 +1,1 @@
-## I used to hate facial hair, but then it grew on me.
+## Mountains aren't just funny, they are hill areas
