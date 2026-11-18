@@ -1,1 +1,1 @@
-## I boiled a funny bone last night and had a laughing stock
+## Where do fish keep their money? In the riverbank
