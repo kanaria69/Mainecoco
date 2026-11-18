@@ -1,1 +1,1 @@
-## What did the calculator say to the student? You can count on me.
+## I boiled a funny bone last night and had a laughing stock
