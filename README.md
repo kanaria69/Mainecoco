@@ -1,1 +1,1 @@
-## Never take advice from electrons. They are always negative.
+## I am terrified of elevators. I’m going to start taking steps to avoid them.
