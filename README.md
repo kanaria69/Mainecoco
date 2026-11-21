@@ -1,1 +1,1 @@
-## Don't buy flowers at a monastery. Because only you can prevent florist friars.
+## Why does Superman get invited to dinners? Because he is a Supperhero.
