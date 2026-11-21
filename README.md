@@ -1,1 +1,1 @@
-## Why did the clown have neck pain? - Because he slept funny
+## Whiteboards ... are remarkable.
