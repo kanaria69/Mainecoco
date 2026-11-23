@@ -1,1 +1,1 @@
-## I used to hate facial hair, but then it grew on me.
+## Nurse: Doctor, there's a patient that says he's invisible. Doctor: Well, tell him I can't see him right now!
