@@ -1,1 +1,1 @@
-## Nurse: Doctor, there's a patient that says he's invisible. Doctor: Well, tell him I can't see him right now!
+## Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
